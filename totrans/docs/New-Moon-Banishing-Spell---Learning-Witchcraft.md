@@ -1,0 +1,40 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:16:53
+-->
+
+# New Moon Banishing Spell - Learning Witchcraft
+
+> 来源：[https://learningwitchcraft.com/new-moon-banishing-spell/#0001-01-01](https://learningwitchcraft.com/new-moon-banishing-spell/#0001-01-01)
+
+If life hasn’t been treating you or your loved ones well lately, it may be time to learn and perform a potent banishing ritual. Banishing can be performed towards people, spiritual beings, and even situations and circumstances that stand on the way of personal growth and peace. Basically, you can attempt to banish any sort of dark energy, no matter where it comes from.
+
+It is important, however, to note your intentions and focus on them before, during and after performing a ritual. Otherwise, if emotions are on the way or you’re not focused enough, the process of banishing can backfire, causing unintentional harm and attracting negative energies.
+
+One of the most powerful banishing rituals is the New moon banishing spell. During this phase of the Lunar cycle, the power or your spell is going to be amplified, and there will be minimal negative consequences should you accidentally do something wrong.
+
+**To perform the  New moon banishing spell, you will need:**
+
+*   A physical representation of whatever you are trying to banish (e.g. a photo, an object reminding you of a situation, or something that belongs to a toxic person in your life)
+*   A deep glass bowl
+*   A mortar
+*   A charcoal tablet
+*   A black candle
+
+And this is how you perform the New moon banishing spell:
+
+When the moon is out, gather your supplies and find a quiet space where you won’t be interrupted. Cast your circle if you wish to do so, light your candle and slightly burn the charcoal tablet (be careful).
+
+Place the charcoal and the object in a bowl. Crush the charcoal with a mortar and smear over the object, focusing your banishing energy on the process. Then, when the charcoal is crushed, destroy the object in any way you like (if it’s unsafe to destroy, deface or bury it).
+
+Once it’s done, take some time to meditate, watching the flame of the candle and letting go of the negative energy.
+
+Blow the candle and rest.
+
+(For an alternative to this spell, you can use our Banishing Spell Kit, which comes with ingredients and full instructions to cast a spell that can banish all negative energies, situations and people from your life.)
+
+[Original Source](https://wiccanspells.info/new-moon-banishing-spell/)
+
+About the author: [1clicktraffic 1clicktraffic](https://learningwitchcraft.com/profile/?1clicktraffic/)
+
+Tell us something about yourself.

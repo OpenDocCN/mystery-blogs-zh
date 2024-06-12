@@ -1,0 +1,144 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:20
+-->
+
+# Saturn-Midheaven Aspects In The Natal Chart
+
+> 来源：[https://teaandrosemary.com/saturn-midheaven-aspects-natal/#0001-01-01](https://teaandrosemary.com/saturn-midheaven-aspects-natal/#0001-01-01)
+
+Saturn-Midheaven aspects will show how serious, restricted, reserved, pragmatic, or focused you appear. The Midheaven often refers to public image, so Saturn tends to *restrict* the public image when it aspects the Midheaven.
+
+However, Saturn is also the planet associated with Capricorn, a sign that indicates business and career success. Capricorn can be quite image-driven, so Saturn-Midheaven aspects don’t always mean that your appearance will be stunted or muted.
+
+These aspects can be both beneficial and difficult, depending on the angle, but they tend to show up in charts when the native is quite serious about their career or image.
+
+## Saturn Conjunct Midheaven
+
+When Saturn conjuncts the Midheaven, your public appearance is inherently karmic. You will need to work through your image and come to terms with it. This doesn’t mean that you can’t be successful, it just indicates that you will never *appear* the way you want to.
+
+You may experience insecurity from a young age. Even when you do well and are successful by society’s standards, you can never get rid of that inner turmoil.
+
+Saturn conjunct Midheaven doesn’t actually indicate *how* successful you will be. There are many natives with this aspect who are *extremely* wealthy or famous, and there’s just as many people who experience a lot of disappointment in their career. 
+
+What Saturn conjunct Midheaven *does* indicate is that you will always feel criticized, even when you achieve the ultimate level of success.
+
+Many of these difficult feelings, including your insecurity, stems from childhood and past lives. As a child, you probably felt that one of your parents (either the dominant parent or the father figure) never saw your true potential and failed to realize or to articulate your importance in the world. 
+
+You may have experienced the absence of your father figure as well. The way that this absence manifested will depend on the sign that Saturn conjunct Midheaven is in. For example, Midheaven in Capricorn can indicate a father who didn’t provide for you monetarily, while Midheaven in water signs will point to emotional absence.
+
+This lack of a father figure created a drive to seek recognition. You look to other people to tell you when you’ve done a good job. However, you run into a blank wall and tend to feel those same negative feelings again, because you don’t get the validation you want.
+
+Now, Saturn conjunct Midheaven brings up these feelings again in your career. Others may brush you off, even if your achievements are worth recognition. You may been seen as too private, reserved, odd, boring, or cold. Often, the way that others see you will be influenced by the sing that Saturn conjunct Midheaven sits in.
+
+You may feel criticized no matter what you do. This judgment can come from your parents, from larger groups, or from the public eye in general. Unlike other people, any critique wounds you in a strong and deep way due to your early interactions with this type of judgment as a child.
+
+However, you probably have a natural urge to do something big or important with Saturn conjunct Midheaven. At first, this is usually because you want to prove yourself, but over time you will realize that it’s simply because *you* want to contribute or to be successful for yourself, not for others.
+
+You probably have a strong sense of inner competition and a drive to master your field. You tend to be very hard on yourself with Saturn conjunct Midheaven, and this can be helpful when you want to reach a goal, but it can go too far and turn into self-defeatism.
+
+If you can learn how to follow your intuition in your career instead of your ego, you can be very successful. Saturn in this position forces you to go within and to reevaluate what is truly important to you, then to follow that path.
+
+Keep in mind that Saturn also rewards hard work. You can certainly be successful monetarily or career-wise with Saturn conjunct Midheaven, but this won’t happen until you transform your beliefs about image and success.
+
+Sometimes, the Saturn conjunct Midheaven aspect can indicate delays in career. Just keep trying and know that all things will come with time. Saturn is the strong and steady teacher, but this karma rarely lasts for an entire lifetime.
+
+Saturn conjunct Midheaven can also indicate that you tend to feel responsible for others when it comes to career. You may have a strong sense of guilt when you can’t get things done or take care of other people. Remember that you need to take care of yourself before you can help others. These feelings should lessen after your first Saturn return, too.
+
+Learn to forgive yourself when you fail. In fact, you will learn over time that failure is the only way to gain new knowledge. 
+
+This placement can indicate that you have a karmic duty in the career world. Look to the sign that Saturn conjunct Midheaven is in for help determining career choices. However, when you get into the career that links to your karma, you’ll know it’s *right* because you will simply feel it.
+
+You must also figure out how to trust your own judgment over that of others. People may see you as too ambitious, harsh, entrepreneurial, or odd. It’s important to remember that this is *exactly* what you’re here to do, whether or not other people realize this.
+
+Saturn conjunct Midheaven means that you have a lot of wonderful qualities. You probably *never* stop trying when you want to succeed in something. You’re hard on yourself, but you will continue pushing, working, and mastering your skills until you move through the barrier in front of you.
+
+You also tend to see the bigger picture. You will sacrifice something now to achieve success in the long-term, and you know how to accomplish even the biggest of your goals. You’ll always go the inner mile to finish what you started.
+
+If you find yourself surrounded by people who judge you or tell you that you can’t do something, remember that this is just your Saturn conjunct Midheaven aspect in action. Look at the motivation that comes from *within* you.
+
+Though you may need to overcome adversity and learn how to build a sustainable foundation in your business or career, if you’re willing to put in the time and effort, you can be extremely successful over time.
+
+The goal with Saturn conjunct Midheaven is to follow your path. Build something real and lasting, no matter what other people say. Focus on your own destiny and follow the careers that feel right, instead of listening to what other people tell you.
+
+Ultimately, you feel disrespected by the world, but this will force you to respect yourself first. Saturn conjunct Midheaven is the biggest teacher in career. While these lessons can be painful and difficult, you can come out on the other side as a confident and accomplished individual.
+
+## Saturn Trine Midheaven
+
+With Saturn trine Midheaven, you have the skills to work with other people when necessary, but you might prefer to pursue your goals on your own. 
+
+You are probably very specific and careful in your work, and you don’t like being around others who are less exacting. Your high standards make it hard for you to work in a group without giving up on the things you want and need.
+
+Saturn trine Midheaven means that you are naturally ambitious. You probably feel the most normal or comfortable when you’re working hard towards something you want. You want not only a successful career, but you specifically desire the *image* of success and of seriousness.
+
+Regardless of what you actually do for work, others will see you as serious, knowledgable, and disciplined in the workplace with Saturn trine Midheaven. You have a lot of self-assurance but you can also back up your words.
+
+In fact, you can even be a bit intimidating to people who don’t feel as smart or as accomplished as you appear. Your image just screams proficiency.
+
+Don’t take this naturally serious image for granted. With Saturn trine Midheaven, you can *appear* impressive, even if you haven’t actually done the work and don’t have the skills.
+
+For example, I have a good friend who is consistently out of work. Her parents funded her education, so she’s very knowledgable, but she fails to actually put her skills into practice and has spent 10+ years figuring out what she wants to do.
+
+If you have Saturn trine Midheaven, you *must* actually contribute to the world in order to reap the benefits of your karma.
+
+## Saturn Sextile Midheaven
+
+Saturn sextile Midheaven gives you the *opportunity* to develop a public image of seriousness and competence. Although you probably have a large presence in the business/career world of your choosing, you can expound upon this image during your life, if you choose.
+
+You tend to work patiently at tasks until you complete them and real your goals. You also take on responsibility if necessary.
+
+However, Saturn sextile Midheaven means that as you continue to work hard, others will start to recognize these qualities in you. This probably won’t happen right away and takes a bit of effort on your part.
+
+Unlike the trine, Saturn sextile Midheaven doesn’t make you seem automatically knowledgable and competent. You must actually do the *work* to be successful.
+
+If you only try to *appear* successful, people will see right through your facade. Real knowledge and skill will be easy to see with Saturn sextile Midheaven. This may take many years but will be worth it in the long run.
+
+## Saturn Opposition Midheaven
+
+Saturn opposition Midheaven makes you feel isolated and lonely, especially in the world of career. You may sense that your public image is blocked or that people just don’t see you as someone important.
+
+There is often a fear of failure with this placement. You may avoid risks because you’re afraid to fail or to look bad.
+
+Usually, Saturn opposition Midheaven develops because one of your parents was strict or distant. Either you were restricted by your family/culture, or you were simply ignored and had to take on responsibility for yourself at a young age.
+
+You may have sensed that you only received praise, admiration, or affection when you met certain criteria or followed the rules. In some way, affection was conditional in your childhood home.
+
+Saturn opposition Midheaven means that these childhood issues hold you back from really pursuing a successful career. Though you will try to escape this karma and negative conditioning by turning *to* your career, you will still feel judged for your roots.
+
+You can never really get away from this Saturn opposition Midheaven placement. Even though the trauma is from childhood, it gets brought up in your career and through your public image, too.
+
+You may try to cultivate a new image for yourself as someone who is the *opposite* of your childhood self. This is a way to escape those negative feelings that you had about yourself.
+
+Unfortunately, this tactic will not bring you success with Saturn opposition Midheaven. You’re only running from your negative self-image instead of dealing with the events that cased your lack of self-esteem.
+
+You will continue to have a hard time meeting the expectations of other people *and* your own expectations until you deal with your inner pain. Saturn opposition Midheaven will literally force you to look at your childhood issues.
+
+Only then will you be able to cultivate the public image that you desire. This is because you will tackle career issues from a place of competence instead of using your career to compensate for your childhood self.
+
+Saturn opposition Midheaven forces you to stop running from your childhood. Ultimately, you can be very successful because you’ll truly know what you want to do in life, but you need to first go backwards in order to go forwards.
+
+## Saturn Square Midheaven
+
+With Saturn square Midheaven, you felt a lack of security as a child. The way that this manifested will depend on the signs that Saturn square Midheaven is in. 
+
+For example, your family may have struggled financially or moved often, or may your parents fought or divorced. One of your parents may have been absent, abusive, or resentful of you.
+
+There are many ways that Saturn square Midheaven can play out. The key here is that your childhood experiences created a deep feeling of insecurity. Things in your life were never constant and you didn’t know what you *could* count on.
+
+When you first entered the work force and left your home as an adult, you realized that you could create your own security. This was probably a positive experience for you with the Saturn square Midheaven aspect.
+
+You may run from your home life by focusing on the professional world, on your career and your public image. This is what gives you the sense of security you were seeking.
+
+Sometimes, people with Saturn square Midheaven move far away or work in a vastly different career in order to achieve this sense of stability.
+
+However, you may find that you tend to put your energy in the wrong areas of your career. Your image feels disjointed because you don’t have a clear direction. You may try many different avenues but never see them through, or you find that having a public image of success feels blocked completely.
+
+Even if your’e able to achieve success and status with Saturn square Midheaven, you aren’t likely to feel content. You may even feel disillusioned with the fame or success that you have been chasing.
+
+This is because with Saturn square Midheaven, you have to pay a high price to achieve the type of status that *you *believe is successful. This is a karmic aspect.
+
+You need to go back to the beginning and deal with your insecurities from childhood. You’ll never find peace if you’re running away from negative feelings. In fact, the Saturn square Midheaven aspect will *force* you to deal with your childhood trauma at every turn.
+
+Until you really tackle these feelings, you will either be blocked from success or will have fame and fortune but will end up hating all of the things you thought you wanted.
+
+Instead, work with Saturn square Midheaven. Go back and deal with your negative feelings. Figure out what security really means to you and what you truly believe. After, you will find that success flows much more easily, in a way that feels peaceful and *right* intuitively.

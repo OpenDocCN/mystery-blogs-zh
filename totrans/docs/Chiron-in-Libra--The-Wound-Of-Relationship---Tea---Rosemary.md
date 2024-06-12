@@ -1,0 +1,66 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:36
+-->
+
+# Chiron in Libra: The Wound Of Relationship | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/chiron-in-libra/#0001-01-01](https://teaandrosemary.com/chiron-in-libra/#0001-01-01)
+
+Chiron is the wounded healer and shows our long-term wounds that often come from a past lifetime. Chiron in Libra is the particular *wound of relationships.*
+
+We tend to overcompensate in Chiron areas by becoming a bit extreme. It’s natural to try and “fix” the wound, but often I find that we *chase* a solution to fix our Chiron, instead of uncovering the solution inside of us.
+
+Unlike other planets, it’s hard to ignore your Chiron. It will hit you in the face, over and over, and can make your life pretty terrible, especially if you don’t know how to work with it. The Chiron in Libra wound is especially difficult because it’s all about relationships, something we deal with almost every day.
+
+## The Chiron In Libra Wound
+
+Chiron in Libra means that you feel like there is something missing from your life. Usually, this “something” is your soul mate.
+
+The Chiron in Libra wound might feel like a hole inside you. You may spend time trying to fill it with things from the outside world. You might also feel as though the world is just a bit off-balance at all times.
+
+With Chiron in Libra, you are hurt by loneliness, but you are also hurt by relationships. Whether you’re in a relationship or are alone, the wound is there. Chiron in Libra shows itself no matter how hard you try to hide it.
+
+There can be a lot of anxiety and guilt surrounding the Chiron in Libra wound. These people typically feel inadequate socially as a child, regardless of whether or not this is apparent to others.
+
+*Other Chiron Posts:*
+
+## How The Chironic Wound Will Show Itself
+
+This Chiron in Libra wound can show itself in a variety of ways. Often, these people feel alone and incomplete without a relationship, but they never find the fulfillment that they’re looking for *in* any relationship, either.
+
+The Chiron in Libra wound usually manifests as **conflict in interpersonal relationships**. It is *really* difficult for these folks to have relationships without triggering the wound. This can include conflicts in romantic relationships, as well as partnerships and friendships. If you have Chiron in Libra, be wary of self-neglect in relationships.
+
+Most relationships for the Chiron in Libra person will be karmic. It is important for these folks to focus on relationships in order to heal the wound, but this spotlight must have the intention of learning and working on ways to approach relationships that are more authentic.
+
+It’s not abnormal for the Chiron in Libra person to wear a mask in a relationship. It might be really hard for them to show their true self to their partner for fear of losing the relationship.
+
+The terror of being alone makes it hard for a Chiron in Libra person to get out of a relationship, even if it becomes unhealthy. It’s not uncommon for these relationships to have some sort of abuse involved in them, mainly because the Chiron in Libra person is passive and malleable, so they’re really a prime target.
+
+I find that those with Chiron in Libra tend to give far more than they receive. This is most likely due to their fear of being left alone. There are definitely “people-pleaser” tendencies with this placement; these are the classic conflict-avoidant individuals.
+
+Alternatively, the Chiron in Libra individual can be so afraid of being alone that they refuse to engage in relationships at all. I don’t see this outcome as much, but it is certainly a possibility. These people are often able to give others relationship advice that they can’t follow themselves.
+
+Typically, the Chiron in Libra person gets into relationships with those who show a mirror image of the qualities they can’t see *in themselves*. They might also give to their partners what they aren’t able to give to their inner selves.
+
+A Chiron in Libra individual might live a double life. It’s easy for them to hide who they truly are inside if they feel that they must put on a face in order to stay in a relationship. Sometimes, these people will do this for years, even while living with a partner.
+
+This really is the classic Romeo & Juliet placement. Chiron in Libra is all about sacrificing yourself for the partner. Often, individuals do this because they are desperately trying to heal the wound, but it doesn’t fix it.
+
+### Where Does The Chiron In Libra Wound Come From?
+
+I find that most Chiron in Libra placements are developed in a past life. Unlike other wounds, this wound is about karmic *relationships*, so Chiron in Libra people will usually meet the same souls over and over until the wound is healed.
+
+Sometimes, these Chironic beliefs are cemented by parents or through other early life experience, but the original wound almost always comes from a relationship trauma in a past life.
+
+### How to Heal Chiron in Libra
+
+The first step to healing Chiron in Libra is to recognize that the true soul mate is within. The Chiron in Libra person is constantly looking to fill that “soul mate” void with other people, but they will only feel truly complete by connecting with the inner self.
+
+You will find with this placement that others reflect your own needs back to you. If you see qualities in others that you feel you lack, then it’s time to try and discover those qualities *within yourself* instead of outsourcing.
+
+You will need to learn how to be authentic in a relationship, without hiding any part of yourself. You probably feel fear that you might be left alone if you do reveal your true self, but this is fear that you have to process and move through. It’s okay to be afraid. The lesson with Chiron in Libra is to do it anyways!
+
+Unconditional love for the self is something that will be helpful for you to develop. You will learn, by doing this work, that separateness and aloneness were simply illusions. I find that energy work can be especially helpful, as well as meditation and inner work.
+
+Interested in learning more about Chiron? [Check out “The Chiron Effect” on Amazon books](https://rstyle.me/+2cz2CZ8qeyPg_M9_cW3uXA).

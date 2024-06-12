@@ -1,0 +1,102 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:23:00
+-->
+
+# 10 Beginner Tarot Mistakes to Avoid | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/beginner-tarot-mistakes-to-avoid/#0001-01-01](https://teaandrosemary.com/beginner-tarot-mistakes-to-avoid/#0001-01-01)
+
+As a beginner Tarot reader, it can be hard to know where to start. The deck feels overwhelming and there are a million different spreads you can use. How are you supposed to know where to begin?
+
+I struggled to learn Tarot for many years. It felt like such an uphill battle to memorize the cards, and then I struggled to give intuitive readings, to use large spreads, etc. Along the way, I learned some valuable tips and saw the areas where I wasted a lot of time as a beginner.
+
+I did almost every single one of these 10 things that I recommend *not* doing, so I’m here to share them with you today. Avoiding these super common mistakes will make the process of learning Tarot *so* much easier!
+
+## 1\. Reading With the Whole Deck at Once
+
+When you first start out, there’s just no way that you can know the meaning of every card in the deck. No matter how much you study them, the definitions will fly right out of your head when you’re actually looking at a spread right in front of you.
+
+Instead, I recommend starting with the Major Arcana. Once you’ve done plenty of readings with just these cards (and almost any reading will be accurate even using only these cards!) switch to the Minor Arcana. Once you’ve mastered those, switch to the Court Cards.
+
+Even if this takes you many months (it took me about 3 months to learn the Major Arcana alone, but only a few weeks to learn the Court Cards – it depends on how well you practice and how easily the information sticks), it’s worth it because you will *actually learn them*. You definitely don’t want to be stuck looking up every definition in a year, and this is the best way to deepen your study and to go from beginner to intermediate to advanced.
+
+## 2\. Not Reading Reversals
+
+Right off the bat, I recommend reading reversals. They are so, so, so important both literally and metaphorically!
+
+It does complicate things a bit, but I think it’s *much* more complicated to start off not reading them and add reversals in later. I recommend starting with only one section of the deck (typically the Major Arcana) and reading the cards both upright and reversed.
+
+There are plenty of online websites where you can find the definitions for both versions of the card. The reversed cards offer some perspectives that just aren’t available when you only read the cards upright, so I would 100% start that sooner rather than later.
+
+## 3\. Asking Yes/No Questions
+
+While you technically can use your Tarot deck to ask yes/no questions, it isn’t really worth your time. First of all, you probably won’t get a very good reading. You’ll get hung up on the actual answer (is it yes or no?) and will focus less on what the cards are actually telling you to do and why. The Tarot deck is very good at giving advice for soul growth, but this can’t always be summed up in a yes/no answer.
+
+Secondly, while experienced Tarot readers can usually tell what the outcome will be, it’s very difficult for beginners to clearly determine if the deck is saying yes or no, especially if they’re emotionally attached to the outcome. For these types of questions, you’re much better off using a pendulum ([head to our Pendulum Dowsing 101 post for more info](https://teaandrosemary.com/pendulum-dowsing-101/)).
+
+## 4\. Asking Time Sensitive Questions
+
+Similar to yes/no questions, time sensitive questions are really hard for beginners to read accurately. These types of questions are best left to the experienced Tarot reader. Keep time sensitive questions in the back of your head as you get more experienced, but focus on the general meanings of the cards for now.
+
+If this is something you want to learn, then I recommend getting some in-depth books on it. It’s much more complicated than you’re lead to believe by beginner Tarot blogs, and it’s really easy to misinterpret the timing of a spread. This can cause a lot of damage, so you want to be very careful if you do decide to pursue learning about timing readings.
+
+If you see something in a spread that feels like it may be time-related, then by all means read it that way, but I recommend not *asking* time-related questions outright as a beginner.
+
+### Interested in a full online tarot reading?
+
+[***Click here to check out our shop page and browse readings!***](https://teaandrosemary.com/shop/)
+
+## 5\. Ignoring the Link Between Tarot and the Elements
+
+This is something that *many* Tarot readers do, whether they’re beginners or not.
+
+Each Tarot card corresponds to at least once element. If you study astrology or witchcraft, then you know that elements are extremely important in spiritual work, and Tarot readings are no exception.
+
+Look up a brief list of what element corresponds to what card and why, and try to incorporate the flavor, meaning, and intent of the element into *every single reading.* I promise, it will make the readings *so* much better!
+
+## 6\. Using Too Large Of a Spread
+
+For some reason, I see a lot of beginners try to use the Celtic Cross spread. Don’t get me wrong: this is a great spread to have up your sleeve at some point, but it’s also insanely difficult to use when you’re just learning the cards. When reading the Celtic Cross spread, you have to know the cards inside and out *and* be able to quickly intuit how they fit together.
+
+Beginners and even intermediate Tarot students are far better off using a three card spread ([we’ve complied over 50 of our favorites here!](https://teaandrosemary.com/3-card-tarot-spreads-for-every-question-you-could-ever-ask/)) because they’re complex enough to get a great reading but are simple to do if you’re still learning the cards or are even still learning how to intuit the cards together in a spread.
+
+## 7\. Using Only Memorization
+
+Learning Tarot means doing quite a bit of memorization. Every student comes to realize this, but there’s a point when you need to combine your memorization of the cards with intuition. Without your intuition, a reading will only have half the power it could.
+
+Once you get even a section of the deck memorized, practice reading with your intuition during your sessions. For example, after laying down a three card spread, look at what the cards actually mean, then use your intuition to broaden those meanings and see how they fit together. Look to the metaphors and pay close attention to any words, phrases, or images that pop into your head out of nowhere.
+
+Learning to read with intuition takes a lifetime of practice, but it’s something that I recommend starting almost right away. You can even begin at the very beginning by looking up the meaning of a card online then trying to read it intuitively, and reversing the order of these steps for the next card.
+
+## 8\. Using Only Intuition
+
+On the flip side, you do need to learn the meanings of the cards. Some beginner Tarot readers try to interpret every reading because they don’t want to do the research. Just like you’re missing out when you ignore your intuition, you’ll lose a huge part of the reading without actually looking up the significance of the cards.
+
+Believe me, I know how hard it is to memorize every single card! I actually don’t recommend learning them in flashcard form; learning while doing is better. Check out these [5 easy exercises that will help you learn Tarot super easily without a lot of pain](https://teaandrosemary.com/how-to-learn-tarot-beginner-exercises/). These are all simple but fun ways to learn!
+
+## 9\. Drawing Many Extra Cards as Clarifiers
+
+If you can’t understand a reading, it’s probably because you haven’t figured it out yet. Don’t fall into the trap of drawing multiple cards as clarifiers. If you do need one clarifier, that’s fine, but if it doesn’t help you figure it out, then you need to sit down and do some serious research on the cards you already have.
+
+Drawing too many clarifiers quickly muddies the water and creates a lot of frustration. It’s an easy trap that we all fall into, but I recommend buckling down and working with the cards you already have until you get it.
+
+Alternatively, don’t do multiple readings on the same topic. Your first reading is the one that will be accurate!
+
+## 10\. Deciding That the Reading Isn’t Accurate
+
+Let’s say you lay down a spread and look up all of the definitions. You double check, and even try to use your intuition a bit, but you just can’t seem to make the cards fit. Is the reading wrong?
+
+Most Tarot readers will tell you that the cards never lie, and they’re correct. There is one exception. If you knew that you shouldn’t ask a question and asked it anyways, then you may not get the answer you’re looking for.
+
+For example, you might ask if your partner is cheating on you, and get a reading all about self-love. You could easily think that the cards are wrong, or that you did it wrong, or that your spirit guides aren’t listening, but all of those assumptions are incorrect. The cards *never* lie, but they don’t always give you the answer you want. In this case, your sprit guides would be giving you the answer they believe you *need.*
+
+There is always an explanation for why you got certain cards; it’s up to you to find it. When you’re confused, look first to the elements. How do the elements of the cards fit into the spread and help to answer the question?
+
+Look also to what pops into your head. A card might not theoretically fit, but the picture or word on the card might have some significant association to you that other readers wouldn’t understand. Your spirit guides know this, and they’re using this card in a different way *because *you’re the one doing the reading.
+
+When in doubt, write down what you got and keep working on it. Sometimes it helps to go back later, but I always find that with enough effort, I’m able to see exactly why I got specific cards and just how important they are.
+
+I hope these tips will help you avoid the most distracting beginner Tarot mistakes! Just remember that it’s always okay to make mistakes because this is how we learn. Happy Tarot practice!
+
+*Related: [Tarot vs Oracle: What’s The Difference?](https://teaandrosemary.com/tarot-vs-oracle/)*

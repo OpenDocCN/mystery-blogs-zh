@@ -1,0 +1,96 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:50
+-->
+
+# Saturn In The 11th House: Transit | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/saturn-in-the-11th-house-transit/#0001-01-01](https://teaandrosemary.com/saturn-in-the-11th-house-transit/#0001-01-01)
+
+## Saturn in General
+
+Saturn is the great teacher of astrology: he enters a house, brings with him pain, and uses discipline to change the way you view that area of life. Every two years or so Saturn will enter a new house and bring with him a variety of lessons that you will need in order to move into the next phase of life.
+
+Saturn transits can be hard for a multitude of reasons. Saturn’s greek counterpart, Kronos, was the father of time and used his tough parenting skills to bring pain and suffering to his children, but ultimately made them better gods and people. 
+
+Saturn also represents Karma in astrology, so whatever house Saturn transits often means a good deal of Karma coming from that area of life. For that year, Saturn will bring pain and learning to that house, and you may learn lessons you didn’t even know about in that year. 
+
+Because it takes Saturn so long to return to the same spot (roughly thirty years); you will experience lessons and transformations in every area of life until you turn 30, and then just repeat for the rest of your life. The great thing about Saturn transits is that we are *always learning–* and Saturn will teach the lesson whether you want to or not.
+
+## The 11th House in General
+
+In Astrology, the 11th house represents social groups, circles, causes, and our place in society. The 11th house is where we become socially active, get involved in causes or societal groups. This is also the house of friendships/friend circles, especially with more than one person. 
+
+Additionally, the 11th house in astrology represents the *objective truth*. It is ruled by Uranus in astrology, and so it can also be a point of rebellion or othering yourself. This is a place where we can either try to fit in, or outcast ourselves. 
+
+In the 11th house, we have the ability to make friends based on common interests and community goals. However, there is a tendency to be fake/inauthentic, so those tendencies will be revealed during the transit. 
+
+The goal of Saturn in the 11th house transit is to transform, learn, and change the aspects of the 11th house that are not working. To shed ourselves of friendships and groups that are not to our highest purpose or are draining our energy, and to lead us into better foundations in the 11th house. 
+
+The most obvious meaning to me about the 11th house refers to “the tribe.” In today’s society, it is very difficult to have a tribe, because it often requires a lot of choice in the matter. Saturn asks us who our tribe is, gives us options, and forces us to make the decision about who we surround ourselves with in a very practical and down-to-earth way. 
+
+## Saturn In The 11th House: Transit
+
+Wherever Saturn goes, he brings with him upheaval. When he enters the 11th house, he does the same thing. A client of mine had a breakup with life-long friends due to incompatibility the first week that Saturn entered her 11th house. 
+
+This means that when Saturn Transits the 11th House, he will remove those groups, social circles, family members, clubs, activities– anything that is not authentic.
+
+Because the 11th House represents the objective truth, is ruled by Uranus, and often seeks rebellion, Saturn will force us to rebel if it is our true and authentic nature. Conforming is not an option. 
+
+When Saturn first enters the 11th house, he demolishes anything that does not have sturdy foundations. Anything that is built on inauthenticity or a lie is destroyed, leaving room for only the things that truly serve a purpose.
+
+Saturn does not care how much *pain* he causes– he seeks only to teach and hopes that in the future we will make more authentic and careful choices about the people we seek to bring into our lives. 
+
+### Saturn and Restriction
+
+Saturn is also a planet of restriction; he will *stop* us from making decisions that are unwise for our growth. A lot of times, this will feel like there are measures taking place beyond our control.
+
+Examples of this may be people cutting us out of their lives, saying hurtful things, or simply leaving us out when Saturn enters the 11th house. It will bring up the deepest fears and insecurities about being *liked* and accepted by a group– something all humans struggle with. It will also show us how far we are willing to go to be liked, and often will stop us from giving ourselves over completely. 
+
+While Saturn moves through the 11th House, we may experiment with different groups of friends and try to find our place in the world. Some causes will call to us, and we will be compelled to see if there is anything there. At other times, we will be told or restricted from going in one direction.
+
+If we follow this anyways, ignoring our gut feeling, then Saturn will bring pain beyond measure. This is a time to *find your people* and to *find your place*. Remember that if you have to force something to work out, that means that Saturn is telling you that it is not meant for you, and it is best left behind. 
+
+Saturn does not mean to restrict you from all opportunities, only the ones that are not meant for you. If something comes easily during this time frame, then it is likely meant for you and you should see it through. However, be wary of Karma in these situations, because Saturn is also the Lord of Karma and may hit you when you least expect it. 
+
+### Saturn and Karma
+
+When Saturn is Transiting the 11th House, most of our Karma will be directed at friend groups and circles. This can take the form of not really fitting in, or being liked by the wrong people. Saturn tests our ability to be liked, and asks us how far we are willing to go to be accepted by society. 
+
+We may make connections during this time that are *doomed to fail*. Because the 11th house is not *hidden*, like the 12th house, we may see these things from a mile away. When Saturn enters the 11th house, he brings with him 3 Karmic lessons; all of which can be easily navigated with intuition. 
+
+Saturn usually gives us three trials: the first will be obvious in the form of “these people are clearly not for me, why am I trying so hard to be liked?” The second comes a bit less clearly, and will *seem* as though these could be your people, this could be your group, but under the surface they are still not for you. The third will disguise itself entirely, and force you to rely on your intuition. 
+
+Saturn loves these tests, so as Saturn Transits the 11th House, he spreads these tests out over the two years that he remains there, and asks you to choose your people and your course of action wisely. 
+
+Many times, Saturn will bring people into your life *as a test*. These are not people who are meant to stay in your life, or people who are meant for you, but passing the test means advancing, and failing the test means pain. Being able to point out who these people are, and learning from the experience either way will bring you closer to your ultimate goal– which is all that Saturn really wants for you. 
+
+### Phases of the Saturn In The 11th House Transit 
+
+#### Phase 1: 
+
+Saturn enters your 11th house and brings destruction with him. This is called the “Destruction” phase, which removes anything from your life that *is not working*, and teaches you *why *it isn’t working. 
+
+In the 11th house, Saturn asks you to look at your friendships and the way you relate to society, and identify the causes of this pain.
+
+Perhaps the issue is the other people, but what specific qualities about these people were not working for you? Perhaps the issue is yourself, in which case, Saturn asks you to make corrections. 
+
+Hopefully, you will be able to learn these lessons as you move forward into phase 2. 
+
+#### Phase 2:
+
+As Saturn transits the middle of your 11th House, he brings with him three trials. These are groups of people/societal groups/activist groups that *are, or are not, meant for you*.
+
+Saturn asks you to use your discernment, and what you learned in phase one to decide for yourself what is meant for you and what isn’t.
+
+Saturn in the 11th house reminds you during Phase 2 that sometimes what you *want* is not what you *need* to survive. Humans must choose their causes and tribes wisely– choose the ones that empower you and *give* you energy, rather than basing your relationships on a fear of being alone, fear of missing out, or any other underlying unconscious fears. 
+
+#### Phase 3:
+
+This is the outcome phase. Here, Saturn in the 11th house transit will show you the ways that you have restricted yourself and hurt yourself in the process.
+
+If you did not join something that *was *meant for you, there will be a feeling of loss– but all we can do is move on. If you fell for one of the tests, there will be a feeling of *shame*, but all you can do is learn from it. 
+
+As Saturn moves into your 12th house, he will bring forth the reasons why you may be feeling this pain and allow you to completely heal before cycling back around to the first house.
+
+It is important not to blame yourself, but rather to look at the lessons that you’ve learned, the cycles that you’ve broken, and move forward with dignity and with your chosen tribe.

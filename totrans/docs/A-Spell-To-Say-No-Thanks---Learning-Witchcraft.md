@@ -1,0 +1,18 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:16:17
+-->
+
+# A Spell To Say No Thanks - Learning Witchcraft
+
+> 来源：[https://learningwitchcraft.com/a-spell-to-say-no-thanks/#0001-01-01](https://learningwitchcraft.com/a-spell-to-say-no-thanks/#0001-01-01)
+
+There are always malicious people ready to use their magic powers to manipulate the will of others. If you suspect that someone else has decided that you’re the one for them and you’re not interested, you can break the power of their spell with this one. For the best results, you should do the spell when the moon is waning.
+
+For the spell you need a black taper candle, a small mirror and a small bowl of water. Make sure when you look in the mirror and you can only see the candle and your face. Switch off the lights in the entire room and light the candle. As the candle burns, visualize the energy of the spell that you suspect has been cast on you going back to the person who cast it.
+
+Move out of focus until only the flame is in the mirror. Watch as the energy is sent back and once it’s gone completely, you should douse the flame in water and repeat the following words. ‘ By the power of candle black, the spell once cast is now sent back, I thank whoever sent it, and ask that he/she not resent it and let it be done that it harm no one.’
+
+About the author: [Moondog](https://learningwitchcraft.com/profile/?tthayer/)
+
+Tell us something about yourself.

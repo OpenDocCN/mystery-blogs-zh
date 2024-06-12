@@ -1,0 +1,43 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:16:54
+-->
+
+# A Spell to Enhance Fertility - Learning Witchcraft
+
+> 来源：[https://learningwitchcraft.com/a-spell-to-enhance-fertility/#0001-01-01](https://learningwitchcraft.com/a-spell-to-enhance-fertility/#0001-01-01)
+
+Every woman deserves to bear a beautiful, healthy child. If you are struggling to conceive, this powerful spell will help boost your fertility and reduce the chances of early miscarriage. In addition, some women who’ve used this spell in the past have reported giving birth to twins and even triplets – without such miracle births running in the family!
+
+One of the reasons this spell is so powerful is that both partners take part in casting it, therefore doubling the energy flow and increasing the chances of success.
+
+To cast this fertility spell, you will need:
+
+*   Three new candles of the same size
+*   The father-to-be who needs to be fully present and committed to the spell
+
+This spell is performed over three days: the day before ovulation, the day of (which is also the day of lovemaking), and the day after.
+
+Each candle is used once, on one of those days.
+
+The day before ovulation, the father to be should light up a candle and repeat the following three times whilst holding it:
+
+*The fountain of life, the ever-flowing energy, bless us tomorrow with a healthy child.*
+
+The day of the ovulation, before and after lovemaking, the father to be should light up a candle, and both partners, holding the candle together, must repeat the following three times:
+
+*The fountain of life, the ever-flowing energy, bless us tonight with a healthy child.*
+
+The day after, the mother to be should light up a candle and repeat the following three times whilst holding it:
+
+*The fountain of life, the ever-flowing energy, may the new life thrive and grow inside me.*
+
+After each candle is lit up, it should be left burning for at least three hours.
+
+If the mother to be experiences a warm feeling in the stomach after performing the final spell, the chances are very high that it worked.
+
+[Original Source](https://wiccanspells.info/a-spell-to-enhance-fertility/)
+
+About the author: [1clicktraffic 1clicktraffic](https://learningwitchcraft.com/profile/?1clicktraffic/)
+
+Tell us something about yourself.

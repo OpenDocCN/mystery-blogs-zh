@@ -1,0 +1,94 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:49
+-->
+
+# 6 Reasons You Keep Seeing Angel Number 1111 | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/angel-number-1111/#0001-01-01](https://teaandrosemary.com/angel-number-1111/#0001-01-01)
+
+Once you’ve begun your frequency shift, angel number 1111 also encourages you to use your natural abilities to assist and inspire others and to rely on your inner wisdom and intuition. Know that your angels and guides are supporting you as you carry out your lightwork.
+
+### 3\. Your Mind Manifests Your Reality
+
+If you repeatedly see Angel Number 1111, it can mean that a gateway has opened for you, allowing your thoughts to manifest more quickly. 
+
+Make sure your thoughts reflect your true desires by choosing wisely. Avoid focusing on fears as they may manifest in your life as a result.
+
+**Angel number 1111 may be telling you to pay attention to your thoughts.** It is possible that your thoughts are *already* manifesting in the world around you. 
+
+For abundance and balance to flow into your life, ensure that your beliefs, thoughts, and mindsets are positive and optimistic. Focus on what you *do* want in your life. 
+
+Take advantage of the positive energy of the Universe to accomplish your deepest desires, hopes, and dreams. Typically, angel number 1111 specifically indicates that a portal has opened. You won’t always have this manifestation power so the time to manifest using your thoughts is right now!
+
+In fact, angel number 1111 often means that your thoughts are manifesting at lightning speed because the energy around you is in turmoil. This can be both positive and negative, depending on the types of thoughts you’ve been having.
+
+Last but not least, angel number 1111 can serve as a grounding message that aligns you with what really matters. Isn’t it about time you stopped looking away from your soul and instead listened to your true self? 
+
+The blueprint or soul-print that lies within each of us awaits activation. When you see angel number 1111, know that *you* have the power to manifest your own activation in any way you’d like.
+
+### 4\. Something New Has Begun In Your Life
+
+New beginnings, opportunities, and projects are appearing in your life for very good reasons right now. Angel number 1111 encourages you to view them positively and trust that everything “new” is coming to you for a reason.
+
+Don’t hesitate to set positive goals and strive forward because your angels and your soul want you to succeed. Embrace your Divine life purpose and soul mission without allowing fears, doubts, or concerns to keep you from living and serving it.
+
+In addition, pay attention to the areas of your life where you feel most “stuck.” It’s possible that you have been manifesting a reality within these realms for years. The time has come for change, so focus on what you’d like to create instead.
+
+You may not realize this yet, but angel number 1111 is alerting you that miracles are now available to everyone. You no longer have to settle! When you begin seeing 11:11 consistently it means a miracle is coming your way and there’s nothing stopping its arrival but you.
+
+If you have the opportunity to begin a new job or relationship, *take it*. Follow the path that feels right to you, even if it’s scary.
+
+Angel number 1111 indicates that anything “new” will probably work out! At the very least, it usually means that you need to try something new to learn something. If you had a different idea that seems frightening because it’s unknown, angel number 1111 is telling you to *go for it.*
+
+Sometimes, new things aren’t always pleasant. As my dad always said, “one door needs to close for another to open.” Angel number 1111 can also indicate endings that allow for new beginnings.
+
+For example, you may be experiencing the end of a romantic relationship, friendship, or career. Maybe you’re moving to a new area and are going through the bittersweet process of saying goodbye to your home.
+
+If something is ending in your life, angel number 1111 is a sign that this pain is *necessary* in order to begin something that’s even better.
+
+### 5\. You Must Raise Your Physical Or Energetic Frequency
+
+Most of the time I find that angel number 1111 is a sign that you need to raise your frequency in some way. This can be physical or energetic. I touched on the idea of raising your frequency earlier in the “spiritual awakening” section, but I want to talk more about this because it’s *so* important for your spiritual growth.
+
+Think of your frequency as the measurement of how quickly your energy vibrates. Every part of your body has this frequency, from your muscles to your mind (based on how fast your neurons fire) and even your energetic body. Your frequency vibrates at a certain rate and is subject to change.
+
+Every action that you take and every thought that you have creates a vibration. You “create” just by existing – you’re *always* creating. You *always* have a frequency too, just by existing.
+
+Unfortunately, there are many, many ways to lower your frequency. It’s all too easy to lower and can feel difficult to raise!
+
+Have you been polluting your divine physical vessel with junk food, sugars, or oily foods that lower your vibration? Or maybe you have calcified your pineal gland, the gland responsible for psychic and spiritual connection? You might have simply forgotten the interconnected nature of mind, body, and spirit, and how physical imbalances and blocks negatively impact your emotional, mental, and spiritual well-being.
+
+And those are just some of the *many* physical ways to lower your frequency! You may be lowering your energetic frequency by engaging in toxic relationships, turning away from the truth, and forgetting your connection to your own soul.
+
+Angel number 1111 is telling you that now is the time to focus on raising your vibrational frequency. Balance your chakras, meditate, focus on your body’s health, cut out chemicals, or learn spiritual, metaphysical, or occult arts.
+
+There are many, many [ways to raise your frequency that I discuss in my monthly courses](https://teaandrosemary.thinkific.com/courses/raise-your-frequency). For now, focus on doing things that intrinsically feel *good* and cut out things that make you sick or feel bad, even if they’re generally accepted by the world.
+
+A direct message is being sent to you telling you to align yourself with your unique soul mission and destiny in the world. To do this, you *need* to raise your frequency, since you can only see the reality that exists at the same frequency of your own vibration. If you don’t raise your frequency, you’ll only see a very limited piece of reality.
+
+Your soul and your angels are on your side and they want you to succeed. Angel number 1111 is a message that you need to raise your frequency in order to truly connect with the massive amounts of power you already have.
+
+### 6\. Your Reality Is Shifting
+
+Angel number 1111 may appear because some people are experiencing the world in a completely different way. You might be experiencing an epiphany or “reality shift” and feeling quite overwhelmed by it all if you see angel number 1111.
+
+Some people who see angel number 1111 are not seeking growth and change, even though they are unintentionally going through a spiritual awakening. The reality they are accustomed to has changed as a result of some challenging realizations about the universe. This can be a painful or confusing experience.
+
+You need to go through this epiphany in order to move forward. This will make you stronger and smarter in the long run. But in the short run, you may feel overwhelmed.
+
+Angel number 1111 is a sign that this is totally normal. Push through and you *will* come out on the other side clearer, sharper, and more powerful.
+
+Remember that your reality matches your frequency. If your reality is changing, your frequency has probably risen. This is a good thing but it can be *very* scary when the world looks quite different.
+
+Be gentle with yourself and allow your mind to adjust to the new reality that you see all around you. Trust that this new reality is more *true* than your old reality, especially if you’re seeing angel number 1111.
+
+## Angel Number 1111 In Love:
+
+When it comes to love, your angels want you to trust your intuition and look within. Your angels are telling you that you have the power to attract new love into your life with the strength of your intentions and manifestations!
+
+Take time to listen to your heart and determine what you truly desire in love. The key to fully loving someone else is to know yourself well. You need to look within before you can find the person you desire outside of yourself.
+
+There is a good chance you will discover something new about love soon, leaving old love habits behind. Allow the love to come to you as you put your energy and vibration out into the universe.
+
+When you see angel number 1111 connected to your love life, know that it’s up to you to make your own destiny.

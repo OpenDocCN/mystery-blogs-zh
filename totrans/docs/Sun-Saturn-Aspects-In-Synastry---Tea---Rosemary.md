@@ -1,0 +1,106 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:16
+-->
+
+# Sun-Saturn Aspects In Synastry | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/sun-saturn-aspects-synastry/#0001-01-01](https://teaandrosemary.com/sun-saturn-aspects-synastry/#0001-01-01)
+
+Sun-Saturn aspects make any relationship feel incredibly serious. 
+
+The Sun represents our inner adult, while Saturn can represent our inner parent. These relationships can sometimes feel like the Sun person is in a relationship with their parent, and this can be expressed positively *or* negatively.
+
+Ultimately, these Sun-Saturn relationships are all about learning how to take responsibility for yourself instead of criticizing or trying to change your partner. These can be very influential relationships because they force growth on a deep level.
+
+These contracts are generally karmic. Although you probably knew each other in a past life, your relationship wasn’t necessarily romantic. However, these relationships give you an opportunity to work out karma between the both of you.
+
+## Sun Conjunct Saturn Synastry
+
+The Sun conjunct Saturn synastry aspect is a karmic placement. It brings a lot of difficulties into a relationship but also gives immense potential for growth.
+
+Most Saturn placements in a synastry chart represent past life karma. Most likely, this couple has met before and is here to work out their karma.
+
+In this Sun conjunct Saturn synastry relationship, Saturn tends to dampen the Sun’s enthusiasm and vibrancy. The Sun person can feel like their “light” doesn’t shine as bright when they’re around their partner.
+
+Over time, this can make the Sun person resentful. They may feel like the Saturn partner criticizes them too much and never sees them as the person they want to be. The Sun person can feel held back from shining as bright as they’d like to.
+
+Typically, the Saturn person doesn’t do any of this on *purpose* with the Sun conjunct Saturn synastry aspect. This is simply the energy of the relationship.
+
+If the Sun person does grow and change, the Saturn partner can start to feel unsafe or insecure. If the Saturn person is willing to be open to new ideas, then they can evolve and change from the influence of the Sun.
+
+In fact, the Sun person often comes into the Saturn person’s life in order to teach them something. Just by being themselves, they will shine light on the Saturn person’s issues and give them the space to work through their karma.
+
+Over time, the Saturn person can confront their feels and discover who they truly are. They must be strong enough to do this work and to let the Sun person shine their light on them.
+
+The Sun conjunct Saturn synastry aspect is all about growing. The Sun person can teach the Saturn person to let go of fear, but these lessons may be painful.
+
+Although the Sun conjunct Saturn synastry aspect often shows up in fated, long-term relationships, the couple may also split after the initial lesson is learned. Look to the rest of the chart to see if there’s enough aspects to hold the partners together.
+
+The outcome of the relationship will probably depend on whether or not the Sun person wants to stick around and deal with the Saturn person’s fears, but it also depends on the extent to which the Saturn person is willing to do the personal work to grow.
+
+Ultimately, both partners must be willing to grow and change for this relationship to work. It can be quite painful if one partner holds back, but this partnership can be truly deep and wonderful should the partners choose to put their best feet forward.
+
+It’s important to learn from each other with the Sun conjunct Saturn synastry aspect and to always dig deeper.
+
+## Sun Trine Saturn Synastry
+
+With the Sun trine Saturn synastry aspect, you tend to naturally trust each other in a relationship and you work through problems as a team. 
+
+The Saturn person will be very loyal to the Sun person and willing to go the extra mile to make the relationship work, while the Sun person gives the Saturn person a sense of joy and newness by shining their light on the relationship.
+
+The Sun trine Saturn synastry aspect tends to bestow a deep sense of commitment to the partners. Unlike some of the other aspects, Saturn is less rigid and tends to be responsible for their partner instead of austere. The Sun person teaches their partner how to let their light shine through and have fun.
+
+This relationship dynamic is simply natural with the Sun trine Saturn synastry aspect. Neither partner has to work to provide for the other.
+
+Typically, the Sun trine Saturn synastry dynamics are overlap from a past life where the couple had some sort of karmic working relationship.
+
+## Sun Sextile Saturn Synastry
+
+With the Sun sextile Saturn synastry aspect, the couple focuses on working towards common goals. They are effectively able to organize and plan for their future together.
+
+There is an opportunity for the Saturn person to give the Sun individual structure, both in the relationship and in their separate life. Meanwhile, the Saturn person can learn how to be more creative and how to loosen up from the Sun person.
+
+This couple can certainly learn how to do both of these things *without* feeling oppressed. However, the Sun sextile Saturn synastry aspect does require a bit of work.
+
+This aspect often shows up when there is a need to heal past life karma. The couple had a relationship in a past life that was beneficial but also had some issues. 
+
+With the Sun sextile Saturn synastry aspect, the couple can work through their control issues to find a deep and loving commitment that expands and grows with the relationship.
+
+## Sun Opposition Saturn Synastry
+
+If you have the Sun opposite Saturn synastry aspect in your chart, you tend to feel very attracted to each other in the beginning of the relationship for karmic reasons.
+
+During the early stages, the Sun person will like the Saturn person’s mature and responsible qualities, while the Saturn person will enjoy the Sun’s energy, creativity, vibrancy, and enthusiasm.
+
+Over time, these same qualities in the Saturn person can start to be oppressive, restrictive, or even controlling to the Sun person.
+
+They may feel that the Saturn person is always trying to teach or parent them and that their light is being snuffed out.
+
+With the Sun opposition Saturn synastry aspect, the Sun person starts to feel drained over time because their ambitions, social life, independence, and even their very thoughts can be controlled by Saturn.
+
+Both people may start to ignore all of the wonderful things they saw in their partner initially because these issues become so heavy. 
+
+The Sun opposition Saturn synastry relationship can grow very negative. It can feel like a constant battle, with the Saturn person always trying to control and the Sun person trying to maintain their light. The Sun person may also be too immature to change the dynamics or to truly take responsibility for themselves.
+
+Typically, people who enter into a Sun opposition Saturn synastry relationship are looking to fill certain roles. The Sun person is looking for someone to take care of them or control them, while the Saturn person is looking for someone they *can* control.
+
+The Saturn person may come to dislike all of the fun, happy qualities they first enjoyed in the Sun person. They can try to change the Sun person or want them to be different than who they are.
+
+If the Sun opposite Saturn synastry relationship is to work, then both people must learn to like the qualities in their partner that may be different than they expected. 
+
+The Saturn person must especially work to *not* control the Sun person. Much of the need to control comes from fear. The Saturn person needs to be cognizant of when they try to snuff out the Sun person’s light.
+
+At the same time, the Sun person needs to learn how to incorporate someone else into their plans and see that not everyone enjoys the same level of socialization and humor that they do.
+
+## Sun Square Saturn Synastry
+
+With the Sun square Saturn synastry aspect, the Saturn person tends or judge and criticize the Sun partner. The Sun person will respond by being frustrated, angry, upset, or sensitive.
+
+At first, the Saturn person may feel that the Sun person is overreacting to their criticisms. Over time, the Sun person can get really worn down and discouraged.
+
+In the Sun square Saturn synastry relationship, the problem tends to lie with both partners. The Saturn person *is* too critical, but the Sun personal also takes everything quite personally.
+
+The Sun square Saturn synastry aspect also means that problems may arise based on differences in the partners’ responsibilities and needs. They can view the word responsible in entirely different lights, and when they act different, this creates friction.
+
+In order for the Sun square Saturn synastry relationship to work, both people will have to communicate and take responsibility for *themselves* instead of shifting the blame.

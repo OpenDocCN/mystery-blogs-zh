@@ -1,0 +1,136 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:39
+-->
+
+# Moon-Nodal Aspects In The Natal Chart | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/moon-nodal-aspects-natal/#0001-01-01](https://teaandrosemary.com/moon-nodal-aspects-natal/#0001-01-01)
+
+In the natal chart, Moon-Nodal aspects indicate that you have a karmic relationship with your mother or caretaker. Most likely, you had a similar relationship in a past life, and you are here to deal with your karmic issues.
+
+The specific aspect will show more about how those karmic issues manifest, and whether the energy is helpful or difficult.
+
+However, the Moon can also mean emotions, so these aspects show emotional baggage or skills that you acquired in a past life, and indicate how your emotions will help you reach your soul’s purpose during this lifetime.
+
+## Moon Conjunct North Node (Opposition South Node)
+
+If you have the Moon conjunct North Node aspect, you also have the Moon opposition South Node aspect.
+
+The Moon conjunct North Node placement means that you tend to revert back to logic and reason instead of truly dealing with your emotions. You’re very good at shutting your emotions down, because your old wounds feel painful.
+
+In fact, you may not have a good grasp on your emotions. Even if you come across as overly-emotional, you definitely don’t know how to deal with your emotions.
+
+Moon conjunct North Node indicates that you don’t know how to control your feelings in a healthy way because you have trauma surrounding the idea of nurture. This probably comes from a mother figure and may stem from a past life, your current life, or both.
+
+The goal in this lifetime is to learn how to nurture yourself. When you begin to love every part of yourself, you will notice that you also learn more about your emotions and how to handle them.
+
+Recognize with Moon conjunct North Node that controlling your emotions does *not* mean ignoring them. Instead, face your feelings and deal with what you’re feeling so that you can move on.
+
+You may experience a stronger-than-normal need for emotional security or even for family. You want someone to care for you, yet it’s hard to move beyond your old patterns of ignoring these emotional needs.
+
+Once you’re able to learn how to nurture yourself and face your emotions, you will find much deeper relationships that make you feel fulfilled in a different way.
+
+Ultimately, your soul’s purpose (the North Node) revolves around learning to be more emotionally secure in this lifetime. 
+
+## Moon Trine North Node (Sextile South Node)
+
+If you have the Moon trine North Node aspect, you may also have the Moon sextile South Node aspect, although this isn’t always the case.
+
+Moon trine North Node indicates that you have a karmic relationship with your mother or mother figure. However, this aspect won’t necessarily tell you whether the relationship is easy or difficult, even though the trine is usually good.
+
+In some way, your relationship with your mother taught you how to use your emotions constructively. The relationship may be painful emotionally, but these lessons allowed you to learn how rely on your emotions and intuition.
+
+You probably instinctively know that your emotions are important if you have the Moon trine North Node aspect. However, your emotions may still be difficult for you, so this aspect doesn’t necessarily mean that you’re good at *expressing* your feelings, only that you recognize the importance of them.
+
+However, Moon trine North Node often means that your karmic lessons are heavily centered around the ideas of nurture, security, and your emotional needs. These are often quite painful karmic lessons.
+
+Moon trine North Node indicates that any emotional pain you go through, especially in your early life, contributes to soul growth. This is a natural process as long as you’re dealing with your emotions and working through difficult feelings.
+
+In fact, the more you get in touch with your emotional and imaginative side, the more you grow towards your North Node. Your soul’s work is heavily influenced by emotions.
+
+The best place for people with Moon trine North Node to start is by working through their trauma or negative karma with the mother figure. With this aspect, lessons that you learn from your mother will naturally push you toward soul growth, even if the lessons are painful, but you can accelerate this process by taking an active position in your own growth and pushing to learn about your feelings.
+
+Remember that even if something feels painful, the emotions that you experience are always pushing you to grow. Be careful that you don’t get stuck in just feeling the emotions. With the trine, there is a tendency to simply be swept away by the negative emotions and patterns. Sometimes, this aspect can even indicate that you get a bit stuck emotionally and don’t really grow after the initial trauma has been experienced.
+
+However, you must use logic to push through and *understand* the emotions in order to transmute them and to truly grow.
+
+## Moon Sextile North Node (Trine South Node)
+
+If you have the Moon sextile North Node aspect, you may also have the Moon trine South Node aspect, although this isn’t always the case.
+
+Moon sextile North Node indicates that you have a karmic relationship with your mother or mother figure. Often, this karma relates to the themes of nurture and care.
+
+It may be difficult for you to receive nurture or to nurture yourself. Though you *want* to be cared for, you probably learned from a young age that there were emotional issues surrounding nurture, too.
+
+The Moon sextile North Node aspect gives you the *opportunity* to heal your issues and karma surrounding nurture, specifically of the emotional nature. You must actually do the work to heal; this won’t happen automatically with the sextile.
+
+This healing may also change the way you nurture others. In fact, your relationship with caretaking *and* being cared for will change altogether as you work through the karmic issues that created the Moon sextile North Node aspect.
+
+You have extreme emotional sensitivity with this aspect. That can be both a blessing and a curse. You are easily able to read your own feelings and listen to your gut, but you could also overreact or take on the emotions of other people.
+
+It’s important with Moon sextile North Node that you learn how to tune into your emotions and use them to your advantage. First, you must heal your karmic issues with your mother figure and learn to nurture yourself, then you can delve deeper into what *causes* an emotional reaction instead of getting swept away by your feelings.
+
+Over time, you can use your emotions to guide you rather than impair you. The more in-tune you become with your emotions, the more you will discover your soul’s purpose.
+
+Moon sextile North Node offers you a wonderful opportunity to work through your emotional trauma and grow as a person *and* a soul, but this is a path that you must choose to embark on and do the work.
+
+## Moon Opposition North Node (Conjunct South Node)
+
+If you have the Moon opposition North Node aspect, you also have the Moon conjunct South Node aspect.
+
+The Moon opposition North Node placement can be very difficult. It indicates that you have emotional patterns from a past life that don’t serve you. You may fall into negative emotional cycles that are very difficult to let go of.
+
+You struggle to develop healthy emotional coping mechanisms. Much of this comes from your trauma with your mother, some of which is from your past life as well.
+
+Typically with the Moon opposition North Node placement, your mother in this life was also a mother or maternal figure in your past life. The relationship was challenging and you were emotionally damaged, in one or both lifetimes.
+
+The house and sign of the Moon conjunct South Node placement will give more details as to how this mother/child relationship played out, especially in the past life.
+
+Now, you struggle to cope appropriately when you experience strong emotions. You have a great sense of intuition and emotional understanding; you tend to instinctively know what others feel, a skill you developed in a past lifetime. However, you won’t necessarily use this for good.
+
+Many people with the Moon conjunct South Node placement turn to addictions to cope, or they may become fanatical about their beliefs in order to gain a sense of nurture. Otherwise, they may use their sense of emotional intelligence to actively manipulate others.
+
+Regardless of how your Moon conjunct South Node placement manifests, the problem is that you don’t have emotional balance. Your sense of anxiety surrounding the ideas of nurture, protection, and emotional comfort block you from dealing with your emotions in a healthy way.
+
+Unfortunately, the Moon conjunct South Node aspect means that you’re *also* blocked from discovering your soul’s purpose (the North Node) until you work through these emotional issues.
+
+You must learn how to tune into your emotional currents and discover what *you’re* feeling. You know how to read other people well and how to avoid your own emotions when they’re painful. This may seem like the easy path, but it won’t be good for you long term.
+
+Instead, learn emotional coping mechanisms (such as self-soothing) so that you can become more emotionally sensitive to *yourself* without losing your sense of self-awareness. It’s imperative with Moon conjunct North Node that you deal with your unhealthy coping mechanisms and learn how to tune into your emotions in a healthy manner.
+
+Start by dealing with the things in your past that feel painful. Delve into the specific wounds you have, and instead of ignoring them, look at the false beliefs that you developed about yourself when the wound was created.
+
+Ultimately, the Moon opposition North Node aspect indicates that you must learn to appropriately nurture yourself, in a caring and loving way, so that you can then deal with your emotions and move towards your North Node/soul’s purpose.
+
+Remember that there are all kinds of nurture. Some kinds of nurture are obsessive or wrong (such as addictions) while others, such as genuine self-love, will get you where you need to go.
+
+## Moon Square North Node (Square South Node)
+
+If you have the Moon square North Node aspect, you also have the Moon square South Node aspect.
+
+With Moon square North Node, you have intense emotional injuries from a past life. Your soul clings to this wound, yet your mind avoids looking at it or dealing with it, which ultimately blocks your soul from making progress towards your purpose.
+
+You are probably afraid to look inward in some way. Others could see you as cold or abrupt because you have trouble showing your sensitive, emotional side, so you can feel very alone internally.
+
+Often, Moon square North Node means that you lost your family in some way. This probably happened in a past life (creating the emotional wound), but this aspect usually means that the trauma was repeated in this life, too.
+
+You may have been orphaned as a child, neglected, or abandoned in some way. Moon square North Node really is the classic “orphan” placement, but this can manifest physically, emotionally, or mentally. Abandonment takes many forms.
+
+Now, you feel very alone. Moon square North Node indicates that you’ve suffered great losses and often feel the loss of your family in particular.
+
+This aspect also indicates a lack of nature and a wound created by the mother figure specifically. In some way, you felt abandoned by the person who was supposed to nurture and care for you.
+
+You may feel like there’s a hole inside of you that you simply can’t fill. If you try to forget about this wound or ignore it, reminders will show up constantly, so you can never really escape this pain.
+
+In this lifetime, you will be forced to deal with these traumatic feelings you carry around. You simply can’t escape the pain. If you ignore the emotional self (either by rationalizing emotions, debasing your emotions, using drinking or drugs, getting angry, etc.) then they will simply come out sideways in extreme reactions that you can’t control.
+
+The goal is to integrate all parts of yourself, but this healing process takes conscious determination. Healing from the Moon square North Node trauma is *not* easy. 
+
+You must learn to love the part of yourself that was abandoned. As a child, you probably believed that there was something bad or wrong with you, but you need to do the emotional work (inner child work can often be helpful) in order to recognize that you exist in perfection, just the way you are.
+
+Look at the times when you feel “bad” or somehow defective. This is a sign that your Moon square North Node has been triggered. Learn to integrate that bad part of yourself in those times and remind yourself that it wasn’t your fault. Affirmations or therapy can be helpful, too.
+
+The healing process from the Moon square North Node aspect can take a long time, but in the end, you will emerge as an emotionally healthy adult with a strong sense of self. 
+
+Remember that this healing is absolutely necessary to reach your soul’s purpose. In fact, these traumatic events happened to you for a reason; they trigger your growth.

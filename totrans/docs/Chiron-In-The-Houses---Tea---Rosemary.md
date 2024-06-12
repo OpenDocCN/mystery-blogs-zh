@@ -1,0 +1,232 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:35
+-->
+
+# Chiron In The Houses | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/chiron-in-the-houses/#0001-01-01](https://teaandrosemary.com/chiron-in-the-houses/#0001-01-01)
+
+Chiron was only just discovered in 1977, but many astrologers (including myself) consider Chiron to be an essential asteroid in the birth chart. Today, I’ll be looking at Chiron in the houses, as well as explaining how you can put your Chiron’s sign and house together to create one fluid definition.
+
+Our Chironic wounds indicate the area where we have been hurt to a huge extent. We carry these wounds around with us and are unable to escape them. The goal is instead to *heal* these wounds and use what we learn from Chiron for good.
+
+## What Is Chiron?
+
+Chiron is known as the “wounded healer” in astrology. Through learning about Chiron, you will get to know and understand your deepest wounds that were created in a past life, in childhood, or (often) a mixture of both.
+
+I find that it’s really beneficial to learn about Chiron, not just because you need to heal it, but because our Chironic wounds give us deeper insight into ourselves and our psyche.
+
+## How To Read Chiron In The Houses:
+
+The signs show the *nature* of Chiron and how it is expressed, but the houses show the *context* for Chironic expression. Chiron in the houses will show *where* your sign is expressed, including the location, the part of the psyche, the timeline, etc.
+
+The goal is to look at both your Chiron in the signs and Chiron in the houses together. While this is tricky to do, it takes a bit of analysis and creativity.
+
+I included examples through these Chiron in the houses descriptions, but feel free to drop a comment with any questions. I’m happy to help you figure out what your Chiron means!
+
+## Chiron In The Signs:
+
+If you’re looking to read about Chiron in the signs, check out these posts:
+
+## Chiron In The 1st House
+
+Chiron in the 1st house can seem pretty obvious to everyone else. Your Chironic wound quite literally shows up in your sense of self, identity, and self-worth. Chiron is very conspicuous in the way that you present yourself.
+
+If you have Chiron in the 1st house, Chiron might also impact your physical health or appearance in some way. The wound often manifests in a physical nature as well as emotionally or mentally.
+
+For example, you might have been physically ignored, abused, have a physical illness, or found some part of your body lacking, depending on the sign that your Chiron in the 1st house sits in.
+
+I find that Chiron in the 1st house can often indicate that the wound was either learned or cemented (if it was first learned in a past life) during childhood. Something about this person’s youth made this Chironic wound an integral part of the outer personality.
+
+Because Chiron in the 1st house is related to childhood, these folks can carry the Chironic wound through their inner child as they age. They might learn to hide it after a time, but the wound will always sit with the inner child.
+
+This Chiron in the 1st house wound will typically manifest in the person’s outward appearance and personality. When you first meet a person with Chiron in the 1st house, you will see the wound right away.
+
+If you have this placement, look at how you feel around other people and how you present yourself. This will most likely point to the wound.
+
+For example, someone with Chiron in the 1st house in Capricorn may have felt ignored or passed over but they also present as cold and stoic. An individual with Libra may feel dependent on others, even when they first meet them, and become clingy quickly.
+
+If Chiron is conjunct the ascendant in the first house, these feelings will be especially strong. Chiron in the 1st house is more likely to present itself physically when it is conjunct the ascendant. Chiron in retrograde may be less obvious to others but more obvious to the individual, although this is not always the case.
+
+## Chiron In The 2nd House
+
+If you have Chiron in the 2nd house, your wound is in the area of security. In some way, you felt as though you lacked security, safety, or well-being. This might be especially obvious during childhood with Chiron in the 2nd house.
+
+This placement can show up in a lot of ways; this depends almost entirely on the sign that Chiron is in. For example, Chiron in Cancer may indicate a lack of emotional security or security regarding the home, while Chiron in Pisces can indicate a lack of spiritual security or the mental illness or addiction of a parent or caretaker.
+
+Chiron in the 2nd house can manifest through security issues with inheritance, money, the home, spiritual guidance, spiritual security, emotional security, mental security, physical security, etc. These people might feel like there is no guiding force in their life (lack of parental security) or they may feel that they are coerced into decisions and can’t develop their own inner self (lack of inner security).
+
+I find that people with Chiron in the 2nd house were often belittled in some way in childhood. They may have had little to no affection, or the affection that they did receive was inappropriate in some way.
+
+At the end of the day, if you have Chiron in the 2nd house, you’ll want to learn how to provide the security you were missing *for yourself.*
+
+You will also recognize that there is no true security on earth beyond believing in the powers of the Universe and believing that everything happens for a reason. You will learn to discern that many societal constructs are just illusions. By figuring out what’s true for you and what the Universe means to you, you’ll develop your *own* sense of inner security.
+
+At the same time, it can be helpful for people with Chiron in the 2nd house to take *practical* steps towards feeling safe. For example, if you felt physically unsafe, creating a safe environment (in neighborhood with low crime rates, installing an alarm system, etc.) might help you to work through your Chiron.
+
+## Chiron in the 3rd House
+
+Chiron in the 3rd house has to do with your ability to process information mentally and to communicate.
+
+If you have Chiron in the 3rd house, you might have difficulty expressing yourself and being heard. Sometimes, you are easily heard, but your true intentions don’t come across.
+
+It’s easy for Chiron in the 3rd house people to incur destructive or negative thought patterns, but they might alternatively avoid anything emotional and have difficulty discussing what they feel. Most people with Chiron in the 3rd house fall into one of these two extremes.
+
+I find that people with Chiron in the 3rd house often believe strongly in rationality and logic, but this is sometimes at the expense of developing their intuition or following their gut feelings. Alternatively, these folks will use *only* emotion and throw logic and intuition to the wayside.
+
+Sometimes, there is even a bit of both. The third house can be a bit erratic because it is the house of Gemini, so the individual with Chiron in the 3rd house might sometimes be completely illogical and emotional, but other times rely *only* on facts and avoid displays of emotion or empathy.
+
+I also notice that Chiron in the 3rd house can relate to learning disabilities, such as dyslexia or ADD. These folks think a bit differently than others, and while there is nothing wrong with that, they inherently *don’t like* their differences. It is their own judgments of their differences (that are formed from society) that cause the issues.
+
+Occasionally, Chiron in the 3rd house can also refer to a wound with siblings. There may be past life trauma or wounds with these specific siblings, or the siblings may just be unable to communicate effectively. This causes a deep wound and hurt for the Chiron in the 3rd house individual.
+
+The way to heal Chiron in the 3rd house is to speak your truth. Learn to value your own thoughts and opinions, and practice balancing gut instincts with logic. You will develop your own method of communication with enough practice, but you must first let go of the judgement that either you or society has cast on your mental abilities.
+
+## Chiron in the 4th House
+
+If you have Chiron in the 4th house, your Chironic wound feels most active when you’re around family or other people from your childhood.
+
+This placement means that your home life either failed to fill the void that your Chiron sign left (in a past life; the specific void will depend on Chiron’s sign), or your childhood simply made Chiron worse. These feelings are always re-triggered when you feel like your “young self” again because your Chiron in the 4th house wound has become a part of your inner child.
+
+You might be very sensitive around family. If things go even slightly wrong, you can easily veer into loneliness or hopelessness.
+
+Often, Chiron in the 4th house means that at least one of your parental figures was *absent. *They might have been absent emotionally, mentally, or physically, but this absence affected you deeply. You may now struggle to figure out where and with whom you belong.
+
+I find that this Chiron in the 4th house placement can lead to over-attachment (or anxious attachment) to those who *do* stick around. Alternatively, the individual might become less attached than normal (avoidant attachment) in order to avoid getting hurt as they did when they were a child.
+
+In relationships, the Chiron in the 4th house individual might struggle to let go, even when the relationship is unhealthy. It’s difficult for these people to see red flags once they’re attached.
+
+If you have this placement, you might be very good at naturally picking up on the wounds of others. Chiron in the 4th house means that you can be a great caretaker, but you can also get emotionally overwhelmed easily. You sometimes get stuck caring for people with wounds that they don’t want to heal.
+
+With Chiron in the 4th house, you need to learn that you are the only one who can give yourself proper validation to heal. You’ll also need to understand that you’re good enough to be cared for by others and that you deserve more than what you ask for.
+
+I find that Chiron in the 4th house is always a lesson of worthiness, but this is a quality that must be developed from the *inside.*
+
+## Chiron in the 5th House
+
+Chiron in the 5th house is especially dependent on the sign that Chiron sits in. This 5th house wound is all about a deep hurt relating to the Inner Child, sexuality, romance, self-expression, or creativity.
+
+If you have Chiron in the 5th house, you probably hide what is unique about you, especially in the sign of your Chiron. You take many various reactions from others as rejection, even when they’re not.
+
+Your inner infant wasn’t given nonjudgmental freedom to play, so now you are hyper self-critical and aware. You are afraid of how others would receive your most vulnerable self. To try and cloak this fear, you simply suppress that part of you.
+
+The Chiron in the 5th house person might be extra-self conscious. It’s hard for them to let go and have fun.
+
+Although I find that Chiron in the 5th house often manifests in this way, there *are* a few other ways it can manifest instead.
+
+Sometimes, Chiron in the 5th house can be about children. You might want children but are unable to have them, so you live with this wound, or you might become hyper-critical of your children because you don’t want them to experience the wound that you felt.
+
+Alternatively, the Chiron in the 5th house person might be wounded or betrayed by partners and by romance in general.
+
+The path to healing Chiron in the 5th house largely depends on the scenario and the Chiron sign. Learning to be vulnerable *with yourself* is always a good first step, as well as finding the will to create and shine, especially in your specific Chiron sign.
+
+The goal with Chiron in the 5th house is to live from the heart with honesty and integrity.
+
+## Chiron in the 6th House
+
+If you have Chiron in the 6th house, your woundedness plays out in the workplace or through working with the community. You will see your wound show up most often where you spend your days (work, school, etc.).
+
+This is a tough placement for a wound because it’s hard to escape it. The wound will also depend a good deal on the sign that Chiron sits in.
+
+Some people with Chiron in the 6th house remember feeling different from other children in school, or they felt that their wound showed up over and over in the workplace no matter how they tried to hide it.
+
+Alternatively, the Chiron in the 6th house wound might also appear in the areas of medicine, health, or disease. Sometimes, a Chiron in the 6th house wound will show up *both *in day-to-day matters and health-related problems.
+
+This placement can also create OCD if Chiron is in a sign that is relevant to this disorder. With Chiron in the 6th house, emotional issues often become physical after a time.
+
+The lesson is to learn to fully accept the self. Most of the problems that come with Chiron in the 6th house are because the individual is trying to reject the self in some way, whether it is because the self is impure, unclean, or simply wrong.
+
+The healing path is to realize that this is simply a false judgment and to work on accepting the inner self completely.
+
+## Chiron in the 7th House
+
+If you have Chiron in the 7th house, your woundedness comes through relationships with others. It is being in a relationship (often a romantic relationship) that triggers your wound, although it always lies dormant under the surface, even when you don’t see it.
+
+You may feel that you don’t have a “self” with Chiron in the 7th house. You might try to emotionally merge or mesh with your partner.
+
+These are the folks that may stifle themselves in relationships in order to hang onto the partnership. They feel that they can’t express who they truly are.
+
+There is potential for these people to end up in abusive relationships due to the nature of the Chironic wound, but they might instead be stifled in other ways, such as entering into a relationship with a partner who has a disability and needs constant care. They always feel as though they need to sacrifice the self.
+
+While the Chiron in the 7th house person may truly love their partner, they might also lose themselves in the relationship.
+
+Sometimes, these qualities and traits are learned from parents or from role models early in life. How the relationship issues manifest will depend on the sign that Chiron is in.
+
+## Chiron in the 8th House
+
+If you have Chiron in the 8th house, your wound has to do with spirituality, death, loss, power, sexuality or money. This wound often has a lot to do with mortality.
+
+Usually, the wound is caused by a trauma surrounding death, loss, control, sex, or financial issues (to the max). This may have been a trauma that happened *to* you in a past life or a trauma you experienced in childhood that caused these learned behaviors.
+
+You are now terrified of what you learned through that trauma. Chiron in the 8th house especially creates a deep, impactful wound that can really hurt you if you don’t work to heal it.
+
+I find that Chiron in the 8th house can indicate losses through death You might be surrounded by a lot of death or you might have lost many people in some manner during early life. This might even happen up through your teenage years, or it might just be something you’re fearful of because of a past life trauma.
+
+Alternatively, your Chiron will center around control. You may either try to control others in a variety of ways or give up your personal control and allow others to take charge of you.
+
+## Chiron in the 9th House
+
+Chiron in the 9th house means that your wound can play out in one of many areas, including travel, spirituality or religion, philosophy, ethics, morals, or higher education.
+
+This one can be a bit complicated to explain so I’m going to try and break it down a bit.
+
+Firstly, with Chiron in the 9th house, you may have been wounded in some way because of the belief system you grew up with. You might either try *extra hard* to find a spiritual path to make sense of your life, or you might avoid thinking about spirituality or religion in general.
+
+These folks are either religious (or spiritual fanatics) or they are completely agnostic. Sometimes, they are constantly having spiritual crises that they just can’t seem to figure out. They might have a need to find an external “God” that exists outside of and separately from themselves.
+
+Alternatively, travel or other cultures were involved in the wound. Sometimes people with Chiron in the 9th house grew up traveling constantly and never had roots, never fit into other cultures, or struggled to find a culture that they *did* fit into. They might feel like they don’t truly belong anywhere.
+
+Lastly, the individual with Chiron in the 9th house might become disillusioned because they fail to live up to a specific vision or potential that they imposed on themselves. I find that this “potential” is sometimes imposed by the parents, but sometimes it is just the individual’s desire to escape the wound through succeeding in a specific way.
+
+The person with Chiron in the 9th house will usually use 9th house means to try and escape the wound (become a lifelong traveler, get immersed in academia with a fear of failure, become heavily involved in philosophy or politics, etc.).
+
+Again, look to the sign that Chiron in the 9th house is in to determine how this wound will play out. The sign typically indicates the *cause* of the wound, especially with Chiron in the 9th house.
+
+I find that the most telling indicator of someone with Chiron in the 9th house is the feeling that they are a failure. There is usually an internal mechanism that tells the person over and over that they have failed, no matter how hard they try.
+
+## Chiron in the 10th House
+
+Chiron in the 10th house indicates that your wound is related to your career or your public image. The woundedness is played out in the areas of business, publicity, or the individual’s need for recognition, appreciation, respect, and acknowledgement.
+
+I find that Chiron in the 10th house folks usually didn’t receive much recognition or respect in childhood, especially concerning their purpose and what they want to do with their lives.
+
+For example, a Chiron in the 10th house child might have wanted to be an astronaut, but they were shot down by their parents for having “too large” of dreams.
+
+Because of these lessons, the individual will either try to force it at all costs (to gain fame, notoriety, or business success) or they will feel far too nervous to even try.
+
+Regardless of which path Chiron in the 10th house people take, there is a deep self-esteem wound that was caused when they were told they weren’t good enough to try or to succeed.
+
+## Chiron in the 11th House
+
+Chiron in the 11th house is a wound relating to individuality and group participation. It shows up in the areas of groups, friends, or the community in general.
+
+The person with Chiron in the 11th house will avoid expressing original ideas because they fear that they won’t be accepted or understood. They might feel *enslaved* by society in general or the way that groups think. They feel that they must conform “or else.”
+
+Even though the individual might conform on the outside, they struggle to understand why the group works as it does. Their sense of individualism bleeds through and speaks to them.
+
+Alternatively, the individual might reject society completely. They feel alienated because they think differently, so they can easily become rebellious or destructive with the intention to hurt others as they have been wounded.
+
+If you have Chiron in the 11th house, the goal is to avoid either extreme and to instead see what you *do* have in common with society. You have these unique views for a reason and you were sent here to share them and to transform the earth.
+
+How can you help by expressing your own needs and inner self in a positive and constructive way? What can you offer? Is there a group that *will* accept you because you bring something special to the table?
+
+Any individual with Chiron in the 11th house is capable of contributing quite a lot of good to society. Healing comes from reconciling individual needs with those of society and expressing *both* in a positive and constructive way.
+
+Ultimately, any individual with Chiron in the 11th house will learn how to be an individual *within* a group and avoid losing themselves.
+
+## Chiron in the 12th House
+
+If you have Chiron in the 12th house, you may work very hard to hide your wound away. The wound might even be unconscious, but when it does come to the surface, you feel the urgent need to stuff it back down.
+
+At the same time, you may cling to your wound with Chiron in the 12th house. These wounds often come from a past life, and it might feel like the wound is an essential part of who you are.
+
+More than any other placement, Chiron in the 12th house can be pretty dark and scary. The wound often revolves around *fear* from a past life and trauma that is buried in your unconscious mind.
+
+Chiron in the 12th house can indicate either mental illness or psychism. These traits are often ancestral; the wound itself may even be ancestral.
+
+Alternatively, this Chiron in the 12th house placement can also have to do with an incarceration of some kind. This could be prison of the mind, body, or spirit.
+
+**So there you have it: Chiron in the houses. Questions or comments about your Chiron placement? Drop a line in the comments and I’m always happy to help!**
+
+*Interested in learning more about Chiron? [Check out “The Chiron Effect” on Amazon books](https://rstyle.me/+2cz2CZ8qeyPg_M9_cW3uXA).*

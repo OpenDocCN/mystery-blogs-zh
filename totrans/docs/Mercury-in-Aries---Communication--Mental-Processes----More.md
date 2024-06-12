@@ -1,0 +1,82 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:39
+-->
+
+# Mercury in Aries | Communication, Mental Processes, & More
+
+> 来源：[https://teaandrosemary.com/mercury-in-aries/#0001-01-01](https://teaandrosemary.com/mercury-in-aries/#0001-01-01)
+
+Mercury is the planet that rules the mind, thought processes, and communication style in Astrology.  It tells us not what we think about, but how we think. Mercury is the closest planet to the sun, and moves the fastest. It may be difficult to differentiate between the two, but remember; the sun is the persona, and Mercury is the mind. 
+
+## Mercury In Aries: The Martian Mind
+
+Mercury in Aries people have a very one-track mind when it comes to their thought processes. They cannot multitask– they do one thing at a time, and move onto the next. These people are lively, energetic, and outgoing. They appear to need constant stimulation and are almost always *doing something. *
+
+Their mind has incredible forceful energy behind it. Because Aries is ruled by Mars, Mercury in Aries people have the ability to use martian ambition to see their thoughts become a reality. 
+
+Mercury in Aries people are very quick thinkers. They are courageous and ambitious, although they sometimes may lack a bit of common sense. These people may have an idea and run with it, without fully thinking through if it is actually what they want. Mercury in Aries individuals tend to be a little impulsive about decisions. They rarely thinks things through completely. 
+
+If something emotional is happening in their lives, it is all they can focus on or think about. Other people cease to exist in their minds, almost as if their problems are the only ones in the world that matter. 
+
+Aries in Mercury people have a very self-oriented mind. They often think more about what is happening in their own life than in others. This is not a bad thing, and gives them a lot of room for realizing their dreams, because they are not as caught up worrying about other people and what they are doing. 
+
+To Mercury in Aries people, they assume this is how all people are. If something is preoccupying their mind, they are incapable of setting it aside to deal with something else. They have a hard time mentally processing their emotions and issues, because when these issues arise, they are the only thing in the world that exists. All the good in the world falls away. 
+
+### Extremism
+
+Mercury in Aries people are either 100% optimistic, usually when they have a new idea or life is going well, or they are 100% pessimistic. They are a mind of extremes, and have a hard time balancing things. 
+
+When they develop an opinion, to them anything else becomes immediately wrong. They cannot understand why anyone would think that way. It can be incredibly hard for them to empathize with other people, because they simply would not do things the same way. 
+
+Mercury in Aries natives may lack control and balance, but they make up for it in their ability to put their thoughts into actions and their intense passion.
+
+These folks put 100% of themselves into everything that they do, and never shy away from a challenge. They see life as a new challenge every day, and are in a constant state of winning or losing. 
+
+They need to remember that after every high comes a low, and every low comes a high. My advise to them is to look for balance. They should be looking for the other side of the coin on every thought they have. 
+
+## Mercury In Aries Communication
+
+Mercury in Aries individuals are either the best or the worst at communicating with people. On a good day, when things are sailing smoothly in their own personal lives, Mercury in Aries individuals give you 100% of their time and energy, and are completely present in the moment. When they’re struggling, however, they rarely listen to other people. 
+
+This may make the Mercury in Aries individual come across as selfish or self-centered, but that is not the case. Mercury in Aries individuals have very one-track-minds. They cannot focus on other people’s problems or stories until they have dealt with their own. 
+
+Mercury in Aries people are somewhat extroverted, and enjoy conversation when their head is in the place for it. They are incredibly present in conversations, and are avid listeners. Mercury in Aries bring a fire to the room that is undeniable and unattainable for those without this placement. 
+
+These Mercury in Aries natives are very passionate about what they love. They spend hours discussing big ideas, and telling people information they learned that they have passion for. These people may want to discuss their business ventures or opportunities often, and have a keen eye for money. 
+
+They have very fiery personalities and are always up for an adventure. In a group setting, they are the “yes” men of the group– always egging people on to have more fun. They are usually very optimistic and brave, which makes them incredibly fun to be around. 
+
+### Bold and Directed
+
+When it comes to communication, Mercury in Aries people are rarely ever scatterbrained. Their energy is very directed, and if the conversation is going one way, they do not like when it veers off onto another kind of conversation. 
+
+Mercury in Aries people think of conversations as singular. When they sit down to talk to someone, they are doing so with *intention*, and only want to discuss the things they want to discuss. 
+
+Mercury in Aries people are incredibly bad liars. They are too bold and direct with how they feel, and they rarely ever have to lie. Sometimes this boldness may get them into some hot water– in which case, they may tell a white lie to get out of it. This lie will come across almost immediately as being forced or fake by the receiver.
+
+## Mercury in Aries Woman
+
+The Mercury in Aries woman is bold, assertive, and direct. Her thoughts become her words, and she is not afraid to say what she means. Because her mind is ruled by mars, she will come across has having a more masculine thought process, even if this is not the case. 
+
+For this reason, she may get along well with men, and even have very close male friendships or brothers. Her mindset was likely formed and developed from her relationship with her father figure, or other men in her life. 
+
+The Mercury in Aries woman does not beat around the bush. She does not wait for people to guess what she is thinking, and she has no expectations that she does not lay down beforehand. She is smart and captivating, brilliant and fiery, and her mind works much faster than her words can even describe. 
+
+The Mercury in Aries woman is the kind of woman who will tell you to your face that you are not what she is looking for. She will fire you for doing your work poorly and insufficiently. The Mercury in Aries woman may be picky, because she knows no one can compare to her own mental strength, and this may make her discerning when it comes to falling in love. 
+
+She is witty, charismatic, and outgoing. One of the things the Mercury in Aries woman tens to lack is charm and nuance. When she wants something, she will be direct and to the point– there is no fluff or go-around with her, which makes flirting with a Mercury in Aries woman a bit difficult. 
+
+What she lacks in charm and nuance she makes up for in her bold assertiveness. She is not someone who needs to be “looked after.” If you are looking for a strong and independent woman who don’t need no man, Mercury in Aries is probably going to be the woman for you. 
+
+## Mercury in Aries Man
+
+The Mercury in Aries Man is impulsive and unpredictable. He *does* what he wants, rather than *saying *what he wants. He figures people will get what he means from his actions, and lives very much by “actions speak louder than words.”
+
+While this kind of attitude is not exactly passive, the Mercury in Aries man would rather avoid aggressive or outright communication when it can be avoided. When choosing between a honest conversation and ghosting, this man will certainly choose ghosting.
+
+At his core, the Mercury in Aries man is an individual. He sees his strengths in his hobbies and profession(s). He likely always has more than one occupation/source of income happening at a time, and he is very driven in every single one. 
+
+The Mercury in Aries man is very hard energy to match. He is so independent and strong on his own that he makes it known to the world that he does not, nor will he ever, need any opinion outside of his own. If he asks a close friend for an opinion, it is not because he *wants advise*, it is rather because he needs to vent. 
+
+The Mercury in Aries man gets his emotions out through putting them into physical form. When something happens in his life, it is all he can talk about, and he *has* to talk about it in order to process it in his mind. Because of this, he likely has very close friends or a partner that he can count on. This makes him dependent on someone (whether he likes to admit it or not).

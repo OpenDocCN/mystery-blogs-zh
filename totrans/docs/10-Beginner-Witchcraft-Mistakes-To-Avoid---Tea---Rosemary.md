@@ -1,0 +1,126 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:23:40
+-->
+
+# 10 Beginner Witchcraft Mistakes To Avoid | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/10-beginner-witchcraft-mistakes-to-avoid/#0001-01-01](https://teaandrosemary.com/10-beginner-witchcraft-mistakes-to-avoid/#0001-01-01)
+
+When you first start off learning witchcraft, it can be overwhelming. There’s so much information out there and a lot of it is contradictory!
+
+Today, I’m sharing the 11 mistakes I made that I *wish* someone had warned me about. While making mistakes is never a bad thing because we always learn from them, these are all simple fixes that change the *outcome* of your spells.
+
+Here are the top 11 mistakes I recommend avoiding in order to cast more powerful spells as a beginner *or* advanced witch!
+
+*Related Posts:*
+
+## 11\. Expecting A Spell To Work Without Any Real World Effort
+
+While magic is certainly *magical, *a spell won’t work if you ignore the “real world effort” while you’re waiting for your spell to take effect.
+
+For example, let’s imagine that you cast a money spell, yet you never leave your home, refuse to get a job, and ignore any opportunities that come your way. The spell can’t *possibly* work because the Universe can only bring you money through *normal* means.
+
+Once you’ve cast a spell, you need to make sure you’re doing everything you can to help it along and that you’re keeping all doors open.
+
+## 10\. Spending Too Much Money On Supplies
+
+Beginner witches can easily get overwhelmed because many spells call for *so many* supplies. If you’re just starting out, I don’t recommend spending hundreds of dollars on supplies.
+
+Instead, think about the most basic supplies that you need. It’s pretty easy to start off with candles (for candle spells), string (for knot spells), incense, and crystals.
+
+Once you have tried a few spells, you’ll start to figure out what types of spells you enjoy and you can invest money specifically in those supplies. Try out candle spells, jar spells, bath spells, potions, etc., then narrow down based on what feels right and what spells are the most successful for you.
+
+## 9\. Not Using Enough Supplies
+
+At the same time, you do need *some* supplies to practice witchcraft. If a spell calls for basil and cinnamon, you can’t just throw black salt in the mix instead and expect it to work.
+
+You certainly *can* substitute ingredients, but you need to use ingredients that work for the same types of spells. Money ingredients can be substituted for other money ingredients in a spell; substituting and ingredient that signifies psychic potential probably *won’t* work.
+
+## 8\. Neglecting Energy Work
+
+A lot of beginner witches jump right in and cast spells, then sit around and wait. This is all good, but to successfully cast a spell you need to *raise energy.*
+
+Before you start spellcasting, or even during, make sure that you practice raising energy. Your spell won’t work without it!
+
+Even a simple 5 minute meditation before casting a spell can help you raise a significant amount of energy and put so much more into the spell.
+
+## 7\. Skipping Basic Defensive Practices
+
+Defensive spells don’t feel *fun,* but it also isn’t fun to leave yourself vulnerable and then get psychically attacked. Defensive spells are necessary for a reason!
+
+When you’re just beginning, you need to *at the very least* [cast a circle before practicing magic](https://teaandrosemary.com/how-to-cast-a-circle/). Do this until you’re absolutely confident that you can work without it! I personally still [cast a circle](https://teaandrosemary.com/how-to-cast-a-circle/) before I practice *any* kind of magic.
+
+I also recommend setting up wards for yourself and for your home or learning about other basic defensive magic practices.
+
+## 6\. Casting Spells You Don’t Care About
+
+In my personal experience, casting a spell you don’t really care about won’t yield results. Your spell needs to *matter* in order to put enough energy into it.
+
+I have tried casting minuscule spells just because I wanted to practice magic, but if I don’t really care about the outcome, it just doesn’t work. Subconsciously, I can’t be bothered to put enough energy into the spell and I rarely get any outcome at all.
+
+## 5\. Reading But Not Practicing
+
+There’s *so much information* out there that it’s easy to get stuck in the research phase. You certainly *do* need to read and learn before you jump right into casting spells, but you also need to just practice. There’s no better way to learn than to do!
+
+I recommend doing a bit of research about the basics, gathering a few tools, and trying out some spells. In between spells, spend more time doing research, then try another spell. I find that a bit of give-and-take works well!
+
+## 4\. Expecting Your Spells To Work Instantly
+
+This isn’t Harry Potter folks. We don’t just wave a wand and get the results we want (even though I wish we could!). Magic takes *time* because it does have to follow the laws of the Universe.
+
+I find that most spells work within a few weeks. You’ll probably have a sense of when you can expect the spell to work while you’re casting it.
+
+If after a month or two, there still aren’t any results, you’ll need to [figure out why your spell didn’t work](https://teaandrosemary.com/3-easy-ways-to-know-if-a-spell-worked/) and make a plan to proceed.
+
+## 3\. Using Sketchy Spells Off The Internet
+
+I source spells from *many *places, both online and in books. Sometimes, super random spells that I try out work insanely well!
+
+At the same time, you want to use a spell that is both tested (by whoever wrote it) and that also seems logical. Before trying out a spell, do a bit of research. Look into the ingredients used in the spell: are they traditionally used for this type of magic?
+
+Make sure the wording to the spell is specific and feels right. If it doesn’t, go right ahead and change it.
+
+At the end of the day, use both logic *and* intuition when you’re picking out a spell recipe, and change anything in the ingredients list that doesn’t sit well with you. This is especially true if you’re casting [hexes and jinxes](https://teaandrosemary.com/curses-hexes-and-jinxes-whats-the-difference/), because these types of spells can easily backfire.
+
+**[This is a great spell book for beginners](https://rstyle.me/+M-_KDnl6PqlYuCpKHJDb2w)**. I have tried most of the spells in this book and loved every single one!
+
+## 2\. Assuming That Everything You Read Is True
+
+Witchcraft isn’t a science. Anyone from anywhere can write an article and give opinions on how to practice the craft!
+
+Unfortunately, not all of this information is true. Some information might be true for *you*, but it won’t work for someone else. Everything in witchcraft is personalized.
+
+A great example of this is the “rule of 3.” This rule basically states that anything cast with a negative intention (such as a jinx or hex) will spring back on the caster three times over.
+
+Some witches *swear* by this rule and treat it as gospel, while others don’t follow it at all. Many witches are somewhere in between.
+
+Don’t expect everything you read in any one source to be true for you. Instead, use a combination of intuition and logic to find your own path.
+
+## 1\. Using Affirmations Instead Of Witchcraft
+
+Witchcraft involves the practice of magic and the use of spells. This means that you need to physically cast a spell *as well as* summon energy and state your intention.
+
+To cast a spell, you need to perform some type of action. It doesn’t always have to involve tools or ingredients, but spells often do because the tools you use release extra energy to aid in your spellcasting.
+
+Many beginner witches fall into the trap of assuming that affirmations or intention is witchcraft. This isn’t the case! You need to summon energy from resources, such as a candle flame or herbs from the earth. The idea behind witchcraft is that this extra energy *combined with* your intention will be enough to successfully cast the spell.
+
+At the end of the day, don’t worry too much about making mistakes. I wrote this post to try and help you get ahead of the curve so that you can be more successful right off-the-bat, but mistakes are just a part of the game.
+
+Don’t be afraid to make mistakes and learn along the way! Everything you do, whether you see it as a positive or negative, is all part of your journey.
+
+**For those of you looking to take your magical practice to the next level,** [**the Tea & Rosemary Patreon free trial is designed with you in mind**](https://www.patreon.com/teaandrosemary)**.** If you’ve sensed that there’s more to magic than occasional folk spells—if you feel a deeper call to the mystical arts—then this is your gateway.
+
+[With the Tea & Rosemary Patreon,](https://www.patreon.com/teaandrosemary) you gain access to an extensive collection of over 100 posts. Explore advanced spells, dive into deep astrological studies including asteroid impacts, and connect with deities through detailed spiritual practices like invocations and evocations. Our content spans from beginner techniques to advanced alchemical witchcraft, designed to empower you no matter your experience level.
+
+**What’s Inside The Free Trial?**
+
+*   Practical and advanced magic such as servitors, ancestor rituals, and spells
+*   My personal experience with & information about the Qliphoth and other initiations
+*   Custom invocations, evocations, and initiation rituals with various deities
+*   Downloadable journals, workbooks, and tarot spreads
+*   Advanced astrology information including asteroids, solar return chart, & more
+*   An in-depth symbolism series
+*   Weekly herbalism profiles, plus tips and recipes
+
+[**Sign up for the free trial now and let’s begin transforming your practice. >>**](https://www.patreon.com/teaandrosemary)

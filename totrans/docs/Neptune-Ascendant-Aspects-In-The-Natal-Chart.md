@@ -1,0 +1,230 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:25
+-->
+
+# Neptune-Ascendant Aspects In The Natal Chart
+
+> 来源：[https://teaandrosemary.com/neptune-ascendant-aspects-natal/#0001-01-01](https://teaandrosemary.com/neptune-ascendant-aspects-natal/#0001-01-01)
+
+Neptune aspects to the Ascendant influence the way that you appear and present yourself. Neptune is all about dreams and illusions, so these aspects make your appearance more elusive and vague.
+
+However, Neptune can also bring a lot of natural creativity into your life too.
+
+It can make you unsure of who you truly are or cause others to have trouble deciphering your personality, yet it also brings and element of spirituality to your Ascendant mask.
+
+## Neptune Conjunct Ascendant
+
+The Neptune conjunct Ascendant aspects make you seem really elusive and dreamy. It can be hard for others to pin down exactly who you are.
+
+Sometimes, you may have an inconsistent look or vibe. Although you’re very magnetic and other people are drawn to you, they can never quite figure you out.
+
+With Neptune conjunct Ascendant, you appear soft and dreamy. You may have illusive eyes that are watery in some sense.
+
+Neptune is much like a higher version of Venus, so Neptune conjunct Ascendant means that you have a lot of sex appeal. However, your sexuality is less visceral and more elusive.
+
+Others project their own images onto you, and you seem to take on these qualities, regardless of who you truly are inside. Your “real” self can be a bit of a mystery. People see what they want to see.
+
+You may be very successful in acting, music, or other creative careers. Many people with Neptune conjunct Ascendant have a flair for entertaining others because people are able to project what they desire onto the individual.
+
+Neptune conjunct Ascendant means that *you* also have a distorted image of yourself. Just like others project their own opinions onto you, it’s easy for you to *take on* their wants.
+
+Other people have the power to change how you feel about yourself because it’s hard for you to see your “outer” self clearly. Some people with Neptune conjunct Ascendant tend to have low confidence, if they aren’t careful to build themselves up, because they don’t know who they truly are.
+
+You are easily overwhelmed by harsh things in the world and can’t hide you feelings from other people. You have a sensitive aura that is almost childlike.
+
+Your sex appeal might be a bit childlike too, especially if you’re a women, although men can sometimes have a similar vibe. You seem almost otherworldly and appear young yet wise at the same time. You may appear slightly vulnerable.
+
+Neptune conjunct Ascendant is a really curious placement because you can be so many things! Ultimately, you’re very malleable based on what the people around you want and think, so it’s hard to pin down exactly how you appear.
+
+It’s as if you exist halfway between the real world and another world or higher dimension. The physical world can feel harsh to you, so you escape by changing yourself or dreaming up an alternate reality.
+
+While you’re very spiritually connected with Neptune conjunct Ascendant, it’s also a tough placement because you struggle to live in reality.
+
+You spend a lot of time trying to figure out who you are and how you can comfortably exist in the world. Although people are typically drawn to you, these Neptunian feelings can also cause self-esteem issues, so you might retreat from the world altogether when you feel overwhelmed.
+
+It’s hard for you to connect with others in a way that feels real and authentic, because *you’re* never quite sure who you are. Who are you truly projecting to the outside world?
+
+Sometimes, people with Neptune conjunct Ascendant experiment with different personas and personalities in an attempt to find who they really are. With this placement, you’re a bit of a chameleon or shapeshifter.
+
+Other people are never quite sure if you’re showing them your true self or are reflecting what they want to see. You’re probably not sure yourself! However, this can make others feel a bit nervous around you, even though they’re also intrigued by your dreamy nature.
+
+With Neptune conjunct Ascendant, you may want to disappear or escape. You’re very sensitive, so it’s easy to get overwhelmed by the harshness of the world. You are easily upset by violence or anything hurtful.
+
+Try to learn that you’re not a victim and avoid saving other people to the detriment of yourself. After all, you cannot help other people if you don’t first look out for yourself. Put on your own oxygen mask first.
+
+You may try to block out reality or your unlimited access to the spiritual realm (which can also be terrifying) through drugs, alcohol, or other addictions. With Neptune conjunct Ascendant, you’re more susceptible to these types of things than most because you want to get away.
+
+Alternatively, you may try to escape into your dreamworld and withdraw from reality. It’s easy for you to do this because your imagination is strong, but this is actually a blocker to discovering who you truly are.
+
+You can be a bit of an escapist with Neptune conjunct Ascendant. You tend to either idealize things or avoid them altogether. Ultimately, you need to learn balance.
+
+Neptune conjunct Ascendant means that you’re very sensitive to higher vibrations. You can easily access the spiritual realm (whether or not you realize it), but this can draw negative or terrifying spirits to you.
+
+I strongly recommend that you learn how to ward yourself spiritually. Your energy is constantly overloaded by the energy of spiritual beings and other people.
+
+When you’re able to ward yourself and protect your energy, you will also be able to work towards developing your own sense of self. With Neptune conjunct Ascendant, you don’t have the natural shields that most of us are born with, but you *can* create them.
+
+You need to develop discernment by learning how to filter out negative energies, entities, and people. It’s hard for you to judge what is good and what is bad for you, but these are skills that you can develop over time.
+
+If you have Neptune in the 1st house but it isn’t exactly conjunct your Ascendant, you will find that many of these same qualities apply to you, although they may not be as strong.
+
+## Neptune Trine Ascendant
+
+With Neptune trine Ascendant, you are sensitive and a bit psychic. You have a lot of empathy for other people and you’re a bit dreamy.
+
+You tend to see the world through emotions and intuition, so it can be hard for you to put your perceptions into words. 
+
+These qualities come naturally to you since birth. Neptune trine Ascendant puts the best qualities of Neptune into your outer personality.
+
+However, you can also be vulnerable to negative energy with Neptune trine Ascendant. You are intuitive and empathetic, but this can be hard to handle when you are faced with a tragedy or violent act. Things that don’t directly affect you *do* influence your mental state and energy.
+
+It can be helpful, with Neptune trine Ascendant, to learn how to ward yourself. Your energy is very “open,” so you often take on the energy of other people and spiritual entities.
+
+You’re susceptible, which makes it harder to guard yourself against things that will hurt you. Learning to create energetic wards is the first step to regaining your self control.
+
+With Neptune trine Ascendant, your imagination is very active. It’s easy for others to see your intuition and dreamy vibe in your outer personality.
+
+You may have trouble making clear declarations or following through on your intentions. It’s hard for others to tell where you truly stand; your outer personality is watery and may not be well-defined.
+
+Neptune trine Ascendant also makes you a bit childlike. You express true wonder when you discover new things, regardless of your physical age. As a person, you’re typically happy and are friendly to be around.
+
+Although people can’t quite pin you down, this doesn’t trigger others with the Neptune trine Ascendant aspect like it may with the opposition or the square. Others feel pleasant feelings around you.
+
+You *do* tend to show what you’re feeling, but these emotions can change *very* quickly. You’re not threatening to others, but you’re not super consistent, either.
+
+Performing arts can be a good outlet for people with Neptune trine Ascendant. You may have natural creative skills, or you may be interested in the spiritual realm or mythology/fantasy.
+
+It isn’t easy for you to express what you feel through words and facts, so a creative outlet is often helpful. This is one way that people *can* come to know who you are and see the true *you*.
+
+Although the Neptune trine Ascendant aspect is easy, be careful that you *act* on your dreams. It’s easy for you to get lost in the fantasy realm, but your life won’t change unless you take action.
+
+The energy of the trine won’t push you to take action, so this is something you have to push yourself to do.
+
+Ultimately, no one can change your life except you. Don’t get stuck in victimhood or self pity (which is easy to do with Neptune trine Ascendant), but instead focus on making your *own* life happen.
+
+Look to the rest of your chart to see what action-oriented placements you have. These are qualities that you can draw on to make your dreams a reality.
+
+Lastly, it can be helpful with Neptune trine Ascendant if you learn how to ground yourself. You may feel too floaty much of the time which leads to inaction. Grounding is a way to stay in the real world while maintaining your connection to spirit.
+
+## Neptune Sextile Ascendant
+
+With Neptune sextile Ascendant, you have a bit of a dreamy nature. You’re extra sensitive to the environment and can easily pick up on subtle energy that other people might miss.
+
+You can read the moods of people around you, even if you don’t consciously realize this. Your personality is mutable, so you can mix with different types of people and project what they want to see.
+
+With Neptune sextile Ascendant, you’re a natural chameleon. You sense how other people want you to appear and change yourself.
+
+However, these skills are very subtle. Your changes won’t be obvious to other people, regardless of how well they know you.
+
+Even your actual appearance can be a bit fluid with Neptune sextile Ascendant. Others might not know how to describe the way that you appear, and even you may be a bit confused!
+
+Because you’re so mutable, you might have a bit of trouble explaining your own wants and needs to other people. With Neptune sextile Ascendant, you have the opportunity to learn how to harness your illusive nature while also remaining true to yourself.
+
+This takes a lot of work, but the goal is to bring your Neptunian qualities into the real world instead of leaving them in your unconscious mind. Work on making your ideas solid and putting your dreamy thoughts into words.
+
+In groups, you’re usually friendly and even a bit charming. You don’t threaten other people and tend to make friends easily, but you also take on the energy of other people.
+
+You’re passive and moldable, but you sometimes forget what’s good for *you* versus what *someone else* wants. Your opinions and values are easily influenced by the energy of others.
+
+With Neptune sextile Ascendant, you need to learn how to set boundaries with other people. Work on improving your self-confidence and self-worth. You have the tendency to wallow in pity, but this won’t help you in the long run.
+
+Learn how to take action and change your own life instead of trying to escape to your dream world or avoid your problems.
+
+It’s OK to make mistakes! You must simply get up and try again.
+
+You have a truly fertile imagination with Neptune sextile Ascendant. If you learn how to unlock your dreamy side, you can do a lot in the world. These qualities already exist within you; they simply need to be practiced.
+
+Your emotions can easily be swayed by others, so with Neptune sextile Ascendant, you need plenty of alone time to develop your own beliefs and values before you talk to other people. 
+
+Ultimately, you have a soothing, happy presence and are sensitive to energy. These are all good qualities as long as you learn how to integrate your dreamy side into the real world and set boundaries with others.
+
+## Neptune Opposition Ascendant
+
+Neptune opposition Ascendant is also known as Neptune conjunct Descendant or Neptune setting. 
+
+With this Neptune opposition Ascendant aspect, you may not be totally sure what you look like. You can never decide if you like your appearance or not. In fact, your physical appearance may seem to change constantly or it may be just out of reach.
+
+Neptune opposition Ascendant means that you may struggle with clothing, fashion, beauty, etc. These areas feel murky and dreamy, so you never know exactly what you want.
+
+You may base your appearance off of what your partner sees or thinks of you, so the way that you feel about yourself changes based on your partner’s judgements.
+
+In fact, Neptune opposition Ascendant means that your relationships, especially your one-on-one ties, are affected by this elusive, dreamy Neptunian nature. You may see your partners through rose-colored glasses and have an idealistic view of relationships.
+
+When you’re in a relationship, your identity dissolves into your partner’s and vice-versa. It’s hard for you to keep the integrity of your own personality and self-image. This can also happen in close, one-on-one friendships.
+
+With Neptune opposition Ascendant, you have trouble seeing people clearly. You may distort the true nature of others and miss their negative qualities.
+
+This can actually create emotional distance between you and your partner. Neptune opposition Ascendant means that your ideals about the relationship aren’t grounded in reality, so you’re dealing with a duality.
+
+When you’re in a relationship, one partner may ignore emotions while the other may function through feelings alone. You can play either part with the Neptune opposition Ascendant natal aspect.
+
+One partner might seem weak, innocent, or easily influenced by deception. Neptune opposition Ascendant usually means that you attract codependent relationships, though you may play either role in various partnerships. This could be true for your friendships, too.
+
+With Neptune opposition Ascendant, you may start relationships with people you feel sorry for. You try to save people and even feel that the underdog is attractive. However, this doesn’t work out in the long run.
+
+You may go through many relationships with unfaithful partners, or you get into relationships with addicts, chronic liars, sex addicts, narcissists, etc. It can be hard for you to snap out of this, because you tend to get stuck in your delusions.
+
+If you had to admit that you created a false image about a partner, then you would also have to realize that the partner you desire never existed in the first place. With Neptune opposition Ascendant, you may build entire relationships off of people who don’t truly exist.
+
+However, you may also *be *the partner who lies, cheats, or controls. In this case, you *also* need to deal with your delusions.
+
+You must learn how to live in the real world without needing to escape. In fact, if you’re this person, then you’re probably deluding yourself in more than one way.
+
+It *is* possible for someone with Neptune opposition Ascendant to find balance, but it takes work.
+
+Ultimately, you desire that illusive, spiritual merging of two people. You’re almost looking for something otherworldly in relationships, which is why you tend to attract people who appear to be everything you want.
+
+What you might not realize is that these kinds of relationships only come through hard work. Neptune opposition Ascendant makes you want to escape, but the only way to get what you want is to go *through* the less pleasant situations.
+
+You will need to learn how to establish strong boundaries in relationships. It’s helpful to create some sort of system for reality checks to make sure that your relationship is what you *believe* it is.
+
+With Neptune opposition Ascendant, you have the tendency to feel like a victim in relationships. It’s important to remind yourself that this isn’t true. 
+
+In fact, the truth is always right in front of you, even if you can’t see it. You *always* have the power to change your own situation.
+
+With Neptune opposition Ascendant, you *can* have the spiritual relationship that you desire, but you won’t get it by victimizing your partners. In fact, you actually find this relationship by first creating a strong sense of self and then sharing this with your partner.
+
+In higher manifestations, Neptune opposition Ascendant can represent your truest soul mate. You can find a spiritually enlightened romance, but you will first need to heal this aspect.
+
+With Neptune opposition Ascendant, you desire unconditional love, but you don’t know how to get it. The first step is to figure out what is *real*. Don’t ignore your gut instincts, but confront your problems and work them out.
+
+Neptune represents enlightenment and spiritual love, yet it can also represent delusions. You want to learn how to encompass the best qualities of Neptune while transmitting the more difficult qualities.
+
+## Neptune Square Ascendant
+
+With Neptune square Ascendant, you have a picture of yourself that isn’t what other people see. There’s the dream version of yourself in your head, then there’s the real version of you that appears to others.
+
+Neptune square Ascendant can cause a lot of confusion. You may struggle with your outer identity. This can cause misperceptions and a lack of trust in your close relationships.
+
+You’re extremely sensitive to energy. You especially notice verbal and nonverbal communication from others such as signals like facial expressions, body language, or even energetic shifts.
+
+However, you can actually be *too* sensitive. If you see one facial movement on someone else that seems “off,” you take it personally and feel self-conscious.
+
+You can easily misunderstand things which makes it hard for you to connect with people at a deep level.
+
+With Neptune square Ascendant, you use other people as a mirror to judge yourself. This is why you’re so sensitive to their reactions. You don’t see the reactions of other people clearly, yet you base your self-worth on these very reactions.
+
+It’s easy for you to feel unworthy with Neptune square Ascendant. You might sacrifice your individuality to make others happy, but this only makes you feel worse in the long run.
+
+Sometimes, people see the worst about you with Neptune square Ascendant, even if their judgments are false. This aspect causes others to project things onto you without waiting for the facts.
+
+Others may put the things that they hate about themselves onto you, so your image gets distorted.
+
+With Neptune square Ascendant, you will need to learn how to stand up for yourself. You must figure out how to be totally straightforward with people, even if this means they won’t like you. This is the only way to feel better about yourself.
+
+This square will literally force you to create a strong sense of outer self. Squares are tough, but they are great teachers.
+
+As a child, you may have felt out of place. Some people with Neptune square Ascendant even feel like an alien. It’s possible that you didn’t know where you fit in.
+
+Keep in mind that all of this pain is teaching you how to develop a *strong* sense of self, regardless of what other people think.
+
+Your ego and identity are somewhat fragmented with Neptune square Ascendant, so you may be confused about how you fit into the world. You will slowly figure out your place through trial and error.
+
+Be careful that you actually take action instead of daydreaming or victimizing yourself. This square can only be healed through hard work! It is important to discipline yourself so that your dreams become a reality.
+
+The Neptune square Ascendant aspect is all about integrating your spiritual self into the real world, regardless of what people think. You will learn that it’s much better to be yourself than to try to be someone else.
+
+Don’t let negativity destroy your confidence in your abilities. You have a lot of creative and spiritual abilities, but it will take work to integrate them into your outer personality.
+
+Not everything will be perfect all of the time, but as long as you’re representing your truest self, then you’re actively healing Neptune square Ascendant.

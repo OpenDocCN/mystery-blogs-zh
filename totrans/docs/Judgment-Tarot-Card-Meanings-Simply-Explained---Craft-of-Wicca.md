@@ -1,0 +1,192 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:10:17
+-->
+
+# Judgment Tarot Card Meanings Simply Explained - Craft of Wicca
+
+> 来源：[https://craftofwicca.com/judgment-tarot-card-meanings-simply-explained/#0001-01-01](https://craftofwicca.com/judgment-tarot-card-meanings-simply-explained/#0001-01-01)
+
+Today we’ll cover the meaning of The Judgment tarot card. This is a part of a deep dive series on the [tarot](https://craftofwicca.com/tarot/).
+
+ ## Summary
+
+| Category | Meaning |
+| --- | --- |
+| Upright | Rebirth, renewal, inner calling, awakening, absolution |
+| Reversed | Self-doubt, lack of self-awareness, refusing to listen to inner voice, fear of change |
+| Astrology | Pluto, Scorpio |
+| Love | Reconciliation, forgiveness, new relationship, letting go of past relationships |
+| Career | Career change, new opportunities, creative pursuits, following your passion |
+| Finances | Financial rebirth, new investments, unexpected income, releasing financial burdens |
+| Past | Past experiences leading to a transformative present, learning from past mistakes |
+| Present | Receiving a wake-up call, feeling called to make important decisions, facing your true self |
+| Future | A major decision, new opportunities, life-changing events, taking action towards your goals |
+
+## The Judgment tarot card description
+
+In the traditional Rider-Waite-Smith deck, the Judgment tarot card depicts an angel blowing a trumpet and surrounded by figures rising from graves or tombs.
+
+The angel is typically depicted as Gabriel, who is known in the Bible as the messenger of God. The figures that are rising from the graves are often shown as people of different ages and genders, suggesting that the judgment being depicted on the card is universal and applies to all people.
+
+ In the background of the card, there is often a mountain range or other natural landscape depicted, which may symbolize the eternal and unchanging nature of the judgment being depicted.
+
+The sky is often shown as bright and clear, possibly symbolizing the clarity and truth of the judgment being made.
+
+ In some decks, the Judgment tarot card may also depict other symbols, such as a book or scroll, which may represent the records being kept of the judgment being made, or a balance scale, which may symbolize the weighing of actions and deeds.
+
+ Overall, the imagery on the Judgment tarot card is meant to convey the idea of final judgment and the consequences of one’s actions.
+
+ ## The Judgment card keywords
+
+Some keywords that are commonly associated with the Judgment tarot card include:
+
+*   Judgment
+*   Responsibility
+*   Accountability
+*   Consequences
+*   Decision
+*   Evaluation
+*   Reckoning
+*   Redemption
+*   Forgiveness
+*   Absolution
+*   Change
+*   Rebirth
+*   New beginnings
+
+These keywords are meant to capture the themes and ideas that are typically associated with the Judgment tarot card. The card is often interpreted as a symbol of the need to take responsibility for one’s actions and to be accountable for the consequences of those actions.
+
+It can also represent the idea of being judged or evaluated by a higher power, and the possibility of redemption or forgiveness. The card may also symbolize the need to make a difficult decision or face the consequences of past actions.
+
+ Finally, the card can represent the idea of change and the possibility of starting anew or being reborn.
+
+ ### Astrology of the Judgment card
+
+The astrological correspondence for the Judgment tarot card is the planet Pluto, which is associated with the astrological sign of Scorpio.
+
+In astrology, Pluto is associated with transformation, rebirth, and the process of letting go of the old and embracing the new. It is also associated with power and control, and the ways in which we use or abuse our power.
+
+ The connection between the Judgment tarot card and the planet Pluto is appropriate, as the card is often interpreted as a symbol of accountability and the consequences of one’s actions.
+
+ It can also represent the idea of transformation and the need to let go of the past in order to move forward. In this way, the astrological correspondence for the Judgment tarot card helps to deepen our understanding of the card’s meaning and the themes it represents.
+
+## Upright Judgment tarot card meaning
+
+What is the meaning of the upright Judgment card?
+
+**The upright Judgment tarot card represents a time of accountability and the consequences of one’s actions. It may indicate a need for self-reflection, transformation, and the opportunity to redeem oneself or seek forgiveness. The card can signify significant change and the need to make difficult decisions. It is a reminder that we are all accountable for our actions and the choices we make.**
+
+ The standard interpretation of the upright Judgment tarot card is that it represents a time of judgment, evaluation, and accountability. It may indicate that you are being called to take responsibility for your actions and to face the consequences of those actions.
+
+This could be a time of self-reflection, in which you are asked to consider the path you have taken and the choices you have made.
+
+ The upright Judgment card can also indicate a time of transformation and the need to let go of the past in order to move forward. This may be a time of significant change in your life, in which you are called to make important decisions or to confront difficult situations.
+
+ The card can also suggest that you are being given a chance to redeem yourself or to seek forgiveness for past mistakes.
+
+Overall, the upright Judgment tarot card is a reminder that we are all accountable for our actions, and that the choices we make have consequences. It can be a difficult card to receive, as it may bring up feelings of guilt or shame, but it can also be an opportunity for growth and self-improvement.
+
+### Example upright Judgment reading
+
+Imagine a woman named Sarah who has been struggling with addiction for many years. She has hit rock bottom and is at a crossroads in her life.
+
+ During a tarot reading, the upright Judgment card appears in the spread. The tarot reader might interpret this card as a sign that Sarah is being called to take responsibility for her actions and face the consequences of her addiction.
+
+It could be a sign that she is being given an opportunity to seek help and make a fresh start. The card might also suggest that Sarah needs to let go of her past mistakes and embrace a new path forward.
+
+ Ultimately, the upright Judgment card in this reading could be seen as a message of hope and the possibility of redemption.
+
+ ## Reversed Judgment card tarot meaning
+
+What is the meaning of the reversed Judgment tarot card?
+
+**The reversed Judgment tarot card represents a refusal to accept responsibility for one’s actions and a resistance to change. It can indicate denial, a lack of self-worth, or an inability to confront difficult emotions. The card can be a warning, to be honest with oneself and to face reality in order to move forward.**
+
+The standard interpretation of the reversed Judgment tarot card is that it represents a refusal or inability to accept responsibility for one’s actions.
+
+ It may indicate that you are avoiding accountability or that you are in denial about the consequences of your actions. The reversed Judgment card can also suggest that you are unwilling to make necessary changes in your life, or that you are resistant to transformation.
+
+ In some cases, the reversed Judgment card can indicate a fear of judgment or a lack of self-worth. It may suggest that you are avoiding the truth about yourself or that you are unwilling to confront difficult emotions or situations.
+
+The card can also indicate a lack of forgiveness or an inability to let go of the past.
+
+ Overall, the reversed Judgment tarot card can be a warning that you are not facing up to the reality of your situation, and that you need to be honest with yourself and others in order to move forward.
+
+ It can be a difficult card to receive, as it may bring up feelings of guilt or shame, but it can also be an opportunity to confront your fears and take ownership of your actions.
+
+### Example reversed Judgment reading
+
+Imagine a man named John who has been in a tumultuous relationship for many years. He is unhappy but is afraid to leave the relationship because he is worried about being alone.
+
+ During a tarot reading, the reversed Judgment card appears in the spread. The tarot reader might interpret this card as a sign that John is avoiding responsibility for his own happiness and is unwilling to confront the consequences of staying in an unhealthy relationship.
+
+ The card might suggest that John is resistant to change and is unable to let go of the past.
+
+In this case, the reversed Judgment card could be seen as a warning that John needs to be honest with himself about his situation and to take ownership of his own happiness.
+
+ It may be a difficult message to hear, but it could also be an opportunity for John to make a difficult but necessary change in his life.
+
+ ## Meanings of the Judgment in tarot positions
+
+Depending on the position of the Judgment card, you will need to interpret it differently.
+
+### Love Judgment tarot meaning
+
+In a love context, the Judgment tarot card can have a number of different meanings. If you are in a relationship, the card may indicate that you are being called to take responsibility for your actions and to be accountable for the well-being of the relationship.
+
+ It could suggest that you need to make an important decision or confront a difficult issue in order to move forward. The card can also indicate a need for forgiveness or the possibility of redemption and a fresh start.
+
+ If you are single, the Judgment tarot card may indicate that you are being called to take a close look at the patterns and behaviors in your past relationships, and to consider whether you are ready and willing to make the necessary changes to attract the kind of love you desire.
+
+The card can also suggest that you are being given an opportunity to start anew and let go of the past in order to make room for new love to come into your life.
+
+ Overall, the Judgment tarot card in a love context can indicate a need for accountability, self-reflection, and the willingness to make difficult but necessary changes in order to create a healthy and fulfilling relationship.
+
+ ### Career Judgment tarot meaning
+
+In a career context, the Judgment tarot card can have a number of different meanings. It may indicate that you are being called to take responsibility for your actions and to be accountable for the success or failure of your career.
+
+The card can also suggest that you are being given an opportunity to seek redemption or to make amends for past mistakes.
+
+ The Judgment tarot card may indicate that you are facing an important decision or a crossroads in your career. It could suggest that you need to evaluate your choices and consider the long-term consequences of your actions.
+
+ The card can also indicate a need for transformation and the willingness to let go of the old in order to embrace the new.
+
+ Overall, the Judgment tarot card in a career context can indicate a need for accountability, self-reflection, and the willingness to make difficult but necessary changes in order to achieve success in your chosen field.
+
+ ### Finances Judgment tarot meaning
+
+In a financial context, the Judgment tarot card can have a number of different meanings. It may indicate that you are being called to take responsibility for your financial actions and to be accountable for the consequences of those actions.
+
+ The card can also suggest that you are being given an opportunity to seek redemption or to make amends for past financial mistakes.
+
+The Judgment tarot card may indicate that you are facing an important financial decision or a crossroads in your financial situation. It could suggest that you need to evaluate your choices and consider the long-term consequences of your actions.
+
+ The card can also indicate a need for transformation and the willingness to let go of old financial habits or patterns in order to embrace new opportunities for financial success.
+
+ Overall, the Judgment tarot card in a financial context can indicate a need for accountability, self-reflection, and the willingness to make difficult but necessary changes in order to achieve financial stability and success.
+
+## Advanced modern tarot interpretations of the Judgment card
+
+I always like to examine other, modern decks to see what can be read into their symbolism.
+
+ The reason for this is that every person will have different decks, so it’s good to learn how to go with your gut on what you see. This is the best way to have a good interpretation of the moment.
+
+ Too many people stick to a learned reading instead of going with the flow. Remember, each reading, deck, person, position, and question is different. Reading the cards is an art, not a science.
+
+One modern interpretation of the Judgment tarot card is that it represents the need to confront and process our collective societal and cultural baggage.
+
+ In this interpretation, the card can symbolize the ways in which we are all influenced by the values and beliefs of the society in which we live, and the ways in which we internalize and carry these values and beliefs with us throughout our lives.
+
+ In this interpretation, the figures rising from the graves on the card could represent the ways in which we are all influenced by the past and the need to let go of outdated or harmful cultural beliefs in order to move forward.
+
+The angel blowing the trumpet could represent the call to awaken and take responsibility for the ways in which we contribute to and maintain societal patterns and systems.
+
+ This interpretation of the Judgment tarot card can be particularly relevant in today’s world, as we are faced with numerous complex and pressing social and cultural issues that require us to confront and process our collective baggage in order to make positive change.
+
+ Back to the [Major Arcana list](https://craftofwicca.com/a-guide-to-the-major-arcana-tarot-meanings/#List_of_the_Major_Arcana).
+
+The previous card was the [Sun tarot card](https://craftofwicca.com/the-sun-tarot-card-meanings-simply-explained/) and the next is the [World card](https://craftofwicca.com/the-world-tarot-card-meanings-simply-explained/).
+
+ ## References

@@ -1,0 +1,140 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:17
+-->
+
+# Sun-Nodal Aspects In The Natal Chart
+
+> 来源：[https://teaandrosemary.com/sun-nodal-aspects-natal-chart/#0001-01-01](https://teaandrosemary.com/sun-nodal-aspects-natal-chart/#0001-01-01)
+
+In the natal chart, the South Node represents a past self and the qualities that you’re evolving away from, while the North Node is the point that shows how the soul *wants* to grow. The North Node tends to feel more uncomfortable because the work is new, but the qualities of the North Node will ultimately bring you fulfillment.
+
+When your Sun sign aspects your Nodes in the natal chart, this shows to what extent your ego, will, or sense of identity is aligned with your purpose.
+
+Hard aspects indicate that your ego will refuse to do soul growth, while easier aspects indicate that your ego will *want* to do the work of your North Node.
+
+Sometimes, these aspects also show to what extent development of the *self* is important in your journey to soul growth and fulfillment.
+
+## Sun Conjunct North Node (Opposite South Node)
+
+If you have the Sun conjunct North Node aspect in your natal chart, you also have Sun opposition South Node, because the Nodes always sit exactly opposite each other.
+
+With Sun conjunct North Node, your soul’s mission and your conscious self are one in the same. This means that your ego or your sense of willpower automatically supports your life’s purpose.
+
+Your mission in this lifetime is to develop your sense of individuality. Although the path can be hard, the goal is to truly *know* who you are by the end of your life.
+
+It’s also important with Sun conjunct North Node that you learn to *express* your truest self fully, regardless of what others think. This is the highest manifestation of the ego, but it’s actually quite hard to be authentic at all times.
+
+Your soul’s purpose is closely linked to the development of the self in this lifetime, so while this can be a difficult path, you’ll find that every obstacle in your life pushes you closer to this goal. Ultimately, you want to know yourself on *every* level.
+
+With Sun conjunct North Node, your personality may be a bit extreme from a young age. You tend to know what you think about everything, but this is usually how you’re working to discover your truest inner self.
+
+You may be drawn to parts of your Sun sign in excess with Sun conjunct North Node. For example, it might be very important that you feel *seen*, and you may go out of your way to exert your will or achieve something.
+
+The more negative side of the Sun sign can appear in your personality, too, such as boasting, exaggeration, or acting like royalty.
+
+Your confidence will be magnified with this aspect, at least on the outside. However, when you find yourself boasting or acting overconfident/selfish, this is a sign that you have not discovered your true sense of self *within*. Often, these mannerisms are a way for someone with Sun conjunct North Node to make up for the *lack* of self within.
+
+This aspect usually means that in a previous life, you had to serve or assist others to the point where you forgot who you truly were. With Sun conjunct North Node, you denied your own needs for so long that you don’t know what they are anymore.
+
+You forgot to value and appreciate yourself. Although this aspect was set in motion during a past life, you may have experienced some of these feelings in your childhood, too. 
+
+Now, you must learn how to be independent and stay true to yourself, even if others don’t like this. You need to learn that if something is *actually* true for you and not a manifestation of ego, then it can’t be wrong.
+
+Sun conjunct North Node can sometimes indicate that you had issues with your father figure as a child. Maybe you didn’t have a proper father figure and felt that a part of you was missing, or perhaps you had a fraught relationship with your father that left you feeling less-than.
+
+Alternatively, you may have a wonderful relationship with your father figure and it may be this very person who helps you learn how to find your sense of self.
+
+Usually, Sun conjunct North Node indicates that your father in this lifetime is a karmic figure and that you have lived many past lives together.
+
+Sun conjunct North Node is all about discovering who you are and developing your most positive, high-vibrational sense of self. Don’t let your ego overshadow your spiritual quest here, or it will be much harder to learn about the inner you. 
+
+Find things that feel your ego in a healthy way. This means that you want to look at the qualities of the sign that Sun conjunct North Node is in and work to evolve the *best* qualities of the sign within yourself. This is what will push you towards soul growth.
+
+You may want to fall back into the mold from your childhood or go along with other people’s opinions, but you need to push in order to break out, even if it feels uncomfortable. We tend to feel most uncomfortable moving towards our North Node because it’s unfamiliar, so Sun conjunct North Node can be a difficult placement because your very Sun sign feels uncomfortable!
+
+This is all because you don’t have a strong sense of self. You must change and evolve from who you were in childhood in order to find out who you are *now.* Work to develop your inner self and move towards soul growth without letting your ego take over.
+
+Remember that your *will*, or your identity from your sun sign, will feel *right*. It’s a grounded feeling in your gut, while giving into the ego will feel like you’re running from something.
+
+If you’re able to work towards identity and soul growth with Sun conjunct North Node, then you can be quite successful in life. You’ll experience karmic good luck when you begin to develop your identity in the most positive way; this is how you will know you’re on the right path.
+
+## Sun Trine North Node (Sextile South Node)
+
+If you have the Sun trine North Node aspect in your natal chart, you *probably* have Sun sextile South Node as well, though this isn’t always the case.
+
+Sun trine North Node indicates that you’ve earned good karma in this lifetime. Circumstances will make it easier for your will, or your sense of identity, to align with your soul’s purpose.
+
+Your truest self and your soul’s life mission are aligned with Sun trine North Node. This makes it easy for you to work on both your soul growth and developing your sense of self without conflict.
+
+Spiritual development may come naturally to you, or at the very least, you’re able to figure out where you want to go in life. You naturally know what feels right for you at a core level.
+
+You may have strong ties to your father with Sun trine North Node. In some way, your father helps you to move towards your soul’s purpose.
+
+This doesn’t necessarily mean that you have a flawless relationship with your father figure, it simply indicates that your relationship in general is very beneficial for your soul’s growth. The relationship may still be painful, but it’s for your highest good.
+
+Ultimately, Sun trine North Node is an easier aspect to have. You will still have to struggle for soul growth, as we all do, but your will and sense of self are aligned with what your soul desires.
+
+## Sun Sextile North Node (Trine South Node)
+
+If you have the Sun sextile North Node aspect in your natal chart, you *probably* have Sun trine South Node as well, though this isn’t always the case.
+
+Any sextile aspect means that the energy flows easily. However, sextiles still require a bit of work and aren’t as natural as a trine.
+
+With Sun sextile North Node, you *can* align your conscious sense of self (the Sun sign) with your soul’s mission (the North Node). Your ego and drive can support your spiritual goals, but you need to work a bit to get these two planets to align.
+
+Work on consciously using your ego and your will for soul growth. This means that you must use the qualities of your Sun sign to push towards your North Node.
+
+You *can* simply ignore the North Node, but it will be much more beneficial with Sun sextile North Node to employ the qualities of your Sun sign when you’re doing Nodal work.
+
+With Sun sextile North Node, you can also use your lessons learned from your father to push through your North Node. This means that you must dig into your parental relationship and deal with any painful ties to your childhood.
+
+Although this can be difficult, Sun sextile North Node gives you a wonderful opportunity to do soul work at your own pace, using your own will instead of external circumstances that force you to see the truth.
+
+## Sun Opposite North Node (Conjunct South Node)
+
+If you have the Sun opposition North Node aspect in your natal chart, you also have Sun conjunct South Node, because the Nodes always sit exactly opposite each other.
+
+Oppositions generally indicate a lack of balance. With Sun opposition North Node, you tend to feel that you need to choose between your sense of self/identity and you soul’s purpose in this lifetime.
+
+Most people with Sun opposition North Node tend to ignore the North Node in favor of the Sun. It may feel easier to deal with the Sun conjunct South Node aspect than to look at the North Node.
+
+This is because your North Node is conjunct your Earth sign with this placement. Your Earth sign sits opposite your Sun (in every birth chart) and represents that qualities that the Sun is trying to push away from. Your Earth sign shows how you felt as a child, but these are usually negative feelings, so you want to move towards the Sun sign qualities.
+
+Unfortunately, your Earth sign is conjunct your North Node with this placement, making the North Node feel even scarier. 
+
+With Sun conjunct South Node, you need to face the opposition and create balance between the two signs, which will be opposites. Remember that there are always positive and negative qualities to every astrology sign!
+
+Sun opposition North Node is all about dealing with the duality of the signs and finding the best qualities to express from each sign. For example, with the duality of Virgo and Pisces, you can choose to inherit the sense of order and structure from Virgo, leaving behind the judgment, and then express the spiritual side of Pisces without the fear.
+
+In fact, I find that signs which sit exactly opposite from each other always have some things in common, too. Learn to find the commonalities in your placements.
+
+The South Node isn’t inherently bad, but it does represent a past self. Transmute this self to create a higher-vibrational Sun with the qualities you desire *without* ignoring the North Node. 
+
+The Sun opposition North Node placement is all about bringing the two together so that you can become one well-rounded individual. Don’t forget that you can have many sides to your personality!
+
+However, you may not achieve as much recognition in your outer life as you desire, or you may go through life feeling unlucky. This is simply an indicator that your work is *within* in this lifetime.
+
+Learn to exist in duality without sacrificing one part of yourself. Although Sun conjunct South Node/Sun opposition North Node is a difficult placement, you can learn quite a lot by dealing with the opposition head-on. In the end, you will come out with a strong and balanced sense of self.
+
+## Sun Square North Node (Square South Node)
+
+If you have the Sun square North Node aspect, you also have the Sun square South Node aspect, making this placement especially difficult.
+
+Squares indicate friction, but they aren’t all bad. They *force* you to deal with the problems. When you have a square in your chart, you will find that the issue shows up over and over until you work through it. There’s simply no ignoring a square aspect!
+
+With Sun square North Node, there is a clash between your ego or identity and your soul’s life mission. Your ego doesn’t want to sacrifice for soul growth. Instead, it wants pleasure or instant achievement, so when you try to do long-term soul growth, your ego gets triggered.
+
+This is when you feel friction. Over time, you must teach the ego that it’s OK to take a backseat sometimes. 
+
+Sun square North Node means that your ego is afraid of disappearing. At its core, this is a valid fear, because then you would lose your sense of self or identity.
+
+However, your sense of self doesn’t need to disappear just because you do soul growth. You can have more than one part of your personality/self. With Sun square North Node, it’s important that you teach your ego how to wait while you do soul growth, then tend to your sense of identity at another time.
+
+The best way to do this is to suspend your judgments in order to do soul work. If you start to feel insecure at some point, know that this is your ego creeping in and work through it.
+
+Ultimately, Sun square North Node means that a transformation of your ego and your life goals is necessary. Work on the values of the Sun sign in order to express the qualities that are for your highest good instead of those derived from ego.
+
+You may also need to work through issues with your father in order to find true soul growth. If you don’t deal with any residual pain from the father figure, then you will run into this issue over and over, so it’s much better to face this pain and work through it.
+
+In fact, working on your parental issues can be one of the best ways to move towards true soul growth with Sun square North Node.

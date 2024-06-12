@@ -1,0 +1,78 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:36
+-->
+
+# Chiron in Scorpio: The Wound Of Control | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/chiron-in-scorpio/#0001-01-01](https://teaandrosemary.com/chiron-in-scorpio/#0001-01-01)
+
+Chiron in the astrology chart shows us our deepest wounds. Although healing this wound is a lifelong pursuit, the *journey* to healing the Chironic wound is a key part of our paths that shapes our personalities. Chiron in Scorpio is all about the wound of *control.*
+
+Most Chiron wounds will be very obvious; these injuries aren’t something we can ignore or hide. It isn’t until we take back personal power that we can truly begin the healing process.
+
+The Chiron in Scorpio wound is especially deep, mostly because the wound comes from a past life trauma.
+
+If you’re just beginning, you’ll need to identify the wound and figure out when the trauma originated before you can begin to heal the wound in an empowering way. Today I’ll be exploring the Chiron in Scorpio wound and ways to find the healing path.
+
+## The Chiron In Scorpio Wound
+
+The Chiron in Scorpio wound was caused by a past trauma or abuse. Usually, the Chironic wound relates specifically to *control.*
+
+This wound is a deep trauma that you carry around without knowing exactly *what* it is. The Chiron in Scorpio wound creates a control problem that blocks you from developing natural trust and love in relationships.
+
+Because of the Chiron in Scorpio wound, you only trust control instead of trusting positive intentions or authentic love. You can’t understand a world where people *don’t* control each other.
+
+I find that this wound will often manifest as inner negative talk projected onto the self, the body, or onto other people. These are things that people to do try and run from the *fear* that the wound creates, although this is often pushed down deep.
+
+This fear will overtake any sense of self and become an integral part of the personality until the Chiron in Scorpio wound is dealt with. Chiron in Scorpio is a very difficult wound to have, but this only makes it more important to deal with the wound in a healthy way.
+
+*Related Posts:*
+
+### How The Chironic Wound Will Show Itself
+
+The Chiron in Scorpio wound can manifest in a variety of ways, but there are a few commonalities that show up for most people.
+
+In *some* sense, the Chiron in Scorpio person will have a total lack of boundaries. This is because they don’t understand healthy relationships.
+
+The wound means that the individual either needs to control others or to *be* controlled. This can show up physically, emotionally, mentally, spiritually, or even sexually. I find that these individuals often use sex as a means of power, but control extends well outside the bedroom.
+
+Chiron in Scorpio is the classic controlling partner, but it can also be the partner who *gets* controlled.
+
+Alternatively, the individual can become paranoid, power hungry, or obsessed with death and darkness. These are all different attempts to control the outcome of something.
+
+There is always some area of the individual’s life where they either require control or give up control. You can learn more about *how* this happens by looking at the house that Chiron in Scorpio sits in.
+
+For example, if you have Chiron in the 2nd house, you’ll either control your finances and possessions with a tight fist, or you’ll feel controlled by the things you have and/or don’t have.
+
+If you have Chiron in the 7th house, you will either exert power over anyone you’re in a relationship with, or you will enter into relationships where you *give up* your personal power.
+
+I also find that it takes an extremely long time for anyone with Chiron in Scorpio to trust. Because of this, relationships aren’t easy, regardless of what house Chiron is in.
+
+Those with Chiron in Scorpio don’t really believe in trust. They were hurt so badly in a past life that these beliefs and traumas have followed them for lifetimes. These folks can never really let down their emotional walls because of the deep fear within them.
+
+### Where Does The Chiron In Scorpio Wound Come From?
+
+I find that the Chiron in Scorpio wound almost always comes from a deep, painful past life trauma. This trauma will be something *really* dark and bad.
+
+Depending on the house and placement, it might be physical, sexual, emotional, etc. I’ve seen Chiron in Scorpio placements that indicated past life murder, rape, suicide, torture, exploitation, abandonment, destruction, death, and more. Usually, this trauma involved some sort of control.
+
+The reason that your Chiron in Scorpio manifests in the areas of control is because you felt such a *lack* of control in your past life while truly terrible things were happening. Although it’s important to explore past lives in order to learn more about your Chiron, it’s also important to move forward in a healthy, positive way. You don’t want to get stuck in the trauma all over again.
+
+### How to Heal Chiron in Scorpio
+
+Although you experienced *real* trauma in a past life, the goal for healing Chiron in Scorpio is to realize that the trauma is *no longer happening*. You developed fear responses to deal with this trauma, but these responses are not serving you now.
+
+The way to heal is to realize that your power is within you. It’s not necessary to get *or* give power through other people, because no one can take away the power that is within you, no matter what happens.
+
+I find that most “transactions” of power are just illusions. We have constructed societal power in order to create a hierarchy among humans, but none of this is true in the universal sense. We all own our energy and our souls, and no earthly creature can take those things away from us.
+
+When those with Chiron in Scorpio feel *self-empowered*, they no longer give away their power or try to overpower others. They simply have no need of either because they have enough power already.
+
+Learning to construct healthy boundaries in all areas (relationships, work, home life, etc.) is a good place to start if you want to find your own power. “Fake it until you make it” really does tend to work for the Chiron in Scorpio individual.
+
+The goal is to eventually see relationships and sex as natural parts of life, as two humans simply relating to each other, not as a mechanism to get or give control.
+
+Those with Chiron in Scorpio need to get out there and “get triggered” while actively working on their boundaries and healing control issues.
+
+Interested in learning more about Chiron? [Check out “The Chiron Effect” on Amazon books](https://rstyle.me/+2cz2CZ8qeyPg_M9_cW3uXA).

@@ -1,0 +1,86 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:35
+-->
+
+# Chiron In Aquarius: The Wound Of Belonging | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/chiron-in-aquarius/#0001-01-01](https://teaandrosemary.com/chiron-in-aquarius/#0001-01-01)
+
+Chiron in the wound that you’re born with, but it continues to develop throughout your life for better or worse. Chiron in Aquarius is all about feeling different. This wound can show itself in a lot of different ways.
+
+In general, the Chironic wound is something that pops up over and over in your life. Unlike Saturn, which can be hidden, it’s hard to *forget* about your Chiron.
+
+At the same time, Chiron can *always* be healed and used for good.
+
+Chiron in Aquarius is especially hard to forget because it shows up any time you’re in a group setting.
+
+I also find that Chiron in Aquarius is a *super* important placement because it shows you that you soul has a unique purpose on this earth.
+
+## The Chiron In Aquarius Wound
+
+The Chiron in Aquarius wound is all about your sense of belonging in a community.
+
+If you have Chiron in Aquarius, you might feel disconnected or self-conscious in a group setting. You feel like you don’t truly belong in the community in some way.
+
+Aquarius is a group sign but it’s also about being different or quirky. With Chiron, this perfectly explains the wound.
+
+You want to be in group settings but you also feel different, as though you don’t belong. You might even feel like there’s something wrong with you.
+
+Ultimately, you just can’t fit into the community in the way that you want to.
+
+It’s common for people with Chiron in Aquarius to seek company but be lonely among others at the same time.
+
+Sometimes, the Chiron in Aquarius person can even feel like an outsider from the rest of humanity.
+
+This individual can also feel unsafe, separated, ungrounded, or self-conscious around groups of people. These groups might be friends, family, the community, or other humans in general.
+
+The Chiron in Aquarius person is often uncomfortable with the things that make them different from others, even if these qualities are actually a gift.
+
+*Related Posts:*
+
+## How The Chironic Wound Will Show Itself
+
+If you have Chiron in Aquarius, you feel *different* in groups, but this will manifest in one of two ways.
+
+In the first way, you go out of your way to get a reaction *about* your differences. You come off as ultra-eccentric.
+
+It is the differences that you have that you play up around others, but not necessarily in a positive way.
+
+You might come off as weird or odd because you’re forcing these differences rather than showing them in an authentic way.
+
+You might also react strongly to any perceived slight. You do this to break bonds that might be forming before the other people can break them or judge you because that would be too painful.
+
+Alternatively, with Chiron in Aquarius, you might remain friendly but distant. You never really feel comfortable in a group so you’re scared to open up and show your true self.
+
+It might be hard for others to really grasp who you are because you avoid becoming truly close.
+
+I find that the Chiron in Aquarius person can sometimes (depending on the house) get obsessed with social *causes* as a way of feeling connected to society, however this might backfire because the individual *really* wants to belong in a group, not just to the idea of a cause.
+
+## Where Does The Chiron In Aquarius Wound Come From?
+
+First of all, the Chiron in Aquarius wound often shows up in the charts of people who are Starseeds.
+
+If you have Chiron in Aquarius, there is probably a good reason you feel like an outside, and that is because you quite literally hail from another planet.
+
+Throughout your past lives on earth, these differences were probably highlighted. You might not have known how to act and how to fit in among the rules and society on Earth.
+
+I find that this wound usually *did* begin with real differences, but when you were hurt by groups noticing these differences, your feelings compounded and over time created a deep, painful wound.
+
+Now, the wound might be triggered even if you technically do fit in because the wound is *inside* you.
+
+## How To Heal Chiron In Aquarius
+
+To heal Chiron in Aquarius, you must first realize that you most likely come from another solar system or even universe. You bring unique qualities to the world and these are gifts rather than burdens.
+
+All Starseeds are here for a reason and it is bring everyone on Earth forward and to help others evolve.
+
+Take time alone to connect with the universe and the energy that is within you. There are gifts that are natural to you and this is *why* you are different.
+
+The path to healing Chiron in Aquarius involves learning to see that you *do* fit into the grand plan.
+
+You need to learn how to discriminate between different systems of thought and recognize when a group isn’t a good fit for you without feeling rejected.
+
+At the end of the day, even with Chiron in Aquarius, you *do* fit somewhere. To heal, you need to figure out where that is and learn to let go of resentful towards the people whom you didn’t fit in with.
+
+Lastly, it can be helpful to look at the ways that your differences from others are actually similarities in essence. This will come through silent communication with the universe.

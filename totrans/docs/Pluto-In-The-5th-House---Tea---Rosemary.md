@@ -1,0 +1,98 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:42
+-->
+
+# Pluto In The 5th House | Tea & Rosemary
+
+> 来源：[https://teaandrosemary.com/pluto-in-the-5th-house/#0001-01-01](https://teaandrosemary.com/pluto-in-the-5th-house/#0001-01-01)
+
+Pluto in the 5th house means that Pluto takes on the values of the 5th house, similar to Leo. This indicates a certain amount of talent for creative endeavors, but it can show a need for attention and recognition.
+
+In fact, because the 5th house can be very romantically-involved, Pluto in the 5th house can indicate quite a lot about your relationships. As with any Pluto placement, this placement can cause toxic relationships, but Pluto also forces transformation for the better.
+
+Sometimes, people with Pluto in the 5th house like dangerous lovers, or those who seem a bit out of reach. Over time, with the right amount of work to transform, Pluto in the 5th house can help you learn how to love in a more authentic and real way.
+
+## Pluto In The 5th House
+
+Pluto can indicate many different things, including areas of obsession, deep-seated fears, things you feel that you need control over, positive power, and the way in which you will transform during this lifetime.
+
+### Obsessions & Fear:
+
+With Pluto in the 5th house, you’re all in when you love someone or something. This can feel terrifying, but you simply don’t know how to love without being completely devoted to your passion.
+
+Sometimes, this can make you afraid of getting attached. You know that once you love, there’s no going back. I find that people with Pluto in the 5th house are often afraid of their own intensity (and the feelings that this intensity produces within them), especially as they age and learn how painful it is to lose something or someone.
+
+You may also have a fear of either having children or raising them “wrong.” You probably have high expectations for yourself as a parent, and you don’t want your children to live through pain.
+
+Alternatively with Pluto in the 5th house, you’re afraid of not caring about your children or being able to emotionally connect with them.
+
+Relationship-wise, you probably aren’t very good at one night stands or friends with benefits situations. You tend to get attached quickly with Pluto in the 5th house, whether or not you actually show it.
+
+When you do get into a relationship, you may find that there’s a lot of drama, chaos, and a general lack of boundaries. You probably have some trust and intimacy issues (and may get jealous quickly), but this is mainly because you’re afraid of losing the person you love.
+
+With Pluto in the 5th house, your lover’s rejection can feel like the end of the world. You are consumed by your relationships, so when they end, you’re left not knowing who you are anymore.
+
+You may be possessive, emotional, dominating, and controlling in relationships; alternatively, you *attract* partners with these qualities. Your relationships may also be a mix of both.
+
+Pluto in the 5th house can make you very demanding in love. You’re also attracted to powerful, Plutonic partners who want to go deep. Superficiality won’t be enough for you.
+
+However, you can also have an intense fear of betrayal. Pluto in the 5th house can cause you to attract manipulative partners, so this fear of betrayal may grow over time when you’re proved right.
+
+If you have a lot of insecurities and don’t yet know how to love yourself with Pluto in the 5th house, you might cover up these insecurities with a big ego. However, inside, you don’t really believe that you compare to other people and you feel like there’s something missing.
+
+This insecurity can create a need to be the center of attention. If you don’t the attention and validation that you require, you may become bitter or envious of others.
+
+### Positive Power:
+
+With Pluto in the 5th house, you have a large sense of creativity and positive self-expression. In fact, this placement can indicate that you’re a very creative person in many ways with a lot of power. 
+
+You may be attracted to art, movies, music, or literature. There is a lot of energy in your life surrounding the creative arts.
+
+This energy can also manifest through your romantic relationships or relationships with children, as well as astrology, spirituality, or the occult. You simply *get* the creative things that you’re drawn to.
+
+However, Pluto almost always has a dark side. With Pluto in the 5th house, you may enjoy dark art or favor taboo themes. You can seem almost mad or obsessed when you’re being creative, but this is probably when you do your best work.
+
+You may also like dark music, horror movies, conspiracy theories, crime shows, detective work, or witchcraft. Anything that feels dark and deep will be alluring to you.
+
+Pluto always brings transformational qualities to your life, and Pluto in the 5th house often means that you will transform through your creativity and your sense of personal power. 
+
+Sometimes, Pluto in the 5th house can also indicate that sex becomes a source of admiration for you. You may enjoy putting on a performance, and this can be a powerful skill, but it can also create some issues for you when you try to have an equal relationship.
+
+Pluto in the 5th house makes you crave pleasure and fulfillment. You love excitement and will generally be a “work hard, play hard” type of individual. Though you may be impulsive and can (at worst) get addicted to pleasure, you definitely know how to live a full life in every aspect.
+
+Everything that you do is big and grand with Pluto in the 5th house. You aren’t prone to half measures and you want it all or nothing. Ultimately, your goal is to contribute something new to the world and to be someone to unique; you want to find a niche that no one else has discovered yet.
+
+### Control:
+
+Pluto placements almost always indicate some issues with control. While Pluto can be transformative in many wonderful ways, it can also create control issues that you must learn how to let go of.
+
+With Pluto in the 5th house, you can be quite controlling in relationships. You may experience possessiveness, obsession, and power struggles with your partners, even if you agreed to keep things casual. Your relationships will have a Scorpionic flair.
+
+If you start to feel like you’re losing your partner, you may manipulate them as a means of gaining back control. You actually hurt yourself when you do this, but you often have no other options.
+
+Alternatively, you may enjoy dominating *or* being dominated by a partner, sexually or otherwise.
+
+Most of the control issues with Pluto in the 5th house appear around relationships. Though you may control your partner, you can also meet people who become obsessed with you and try to control *you* in order to obtain the piece of you that feels Scorpionic.
+
+Pluto in the 5th house can overwhelm you with feelings. As much as you try to control your emotions, you may feel that they control you most of the time. You want to find balance but don’t truly know what that means, so you will exercise control in various ways to try and get a handle on your emotions.
+
+### Transformation:
+
+Ultimately, Pluto forces you to transform whether or not you want to. Pluto is a difficult teacher, but you always come out better on the other side.
+
+With Pluto in the 5th house, you may go through many shifts or transformations relating to your personal identity and the way you present yourself. After all, the 5th house is al about who you are, how you love, and how you show yourself to others.
+
+You may also experience transformations through your love life. You find that relationships change you on a core level and that you learn many of your large lessons through romance.
+
+Your love life may be very intense with Pluto in the 5th house. This can feel overwhelming, but it’s also what forces you to transform. Sex can have a hand in your transformations, too, and even the way you think about sexual intimacy may change over time as you open yourself to deep bonding and intimacy.
+
+Alternatively, you may transform through your children with Pluto in the 5th house. Not only will your life change when you have children, but your kids will push against you and force you to reevaluate your beliefs.
+
+Pluto in the 5th house can sometimes indicate power struggles with your children, though this will depend on how much transformation you have done *before* you have children.
+
+You will learn with this placement that love can be emotionally destructive or healing. Through being “destroyed” over and over in one-on-one relationships, you will dig deep and learn what it means to *you* to love others as well as yourself.
+
+Because the 5th house is correlated to Leo, your transformations with Pluto in the 5th house will ultimately relate to the heart. This means that you will learn to love yourself, your partner, your close friends, and your children in a way that is different and more authentic, without power or control.
+
+You will learn how to love someone for who they are and how to coexist without triggering each other, simply because you love from the heart.

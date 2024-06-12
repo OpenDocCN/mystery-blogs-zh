@@ -1,0 +1,42 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:16:38
+-->
+
+# A Spell For Weight Loss - Learning Witchcraft
+
+> 来源：[https://learningwitchcraft.com/a-spell-for-weight-loss/#0001-01-01](https://learningwitchcraft.com/a-spell-for-weight-loss/#0001-01-01)
+
+This is a weight loss spell that increases the metabolism of your body, this helps your body to burn calories faster. There will not be instant results, but as time goes by, you will see that those extra pounds are disappearing. The results can be sped up with healthy eating and regular exercise.
+
+**What is needed to perform this weight loss spell is:**
+A candle; red
+A small cloth pouch which is preferably orange or red.
+It is best to use all three of these ingredients, a teaspoon of each, if however you can only find one, or a couple, that will work as well; ground cinnamon, cayenne pepper and ground ginger.
+When the moon is waning is when the weight loss spell should be performed. For the most effective results, after the first day following a full moon. Perform the spell seven days in a row.
+
+### How To Perform The Weight Loss Spell
+
+To begin, ground and center yourself, after that is done you may cast your circle. All the ingredients for the spell must be placed in front of you and, the red candle must be lit.
+
+Meanwhile the candle burns, imagine the inside of your body being warmed by the heat of the flame. Stare into the candle´s flame, imagine that your body has taken on the attributes of this fire. Observe the way the wax burns on the candle, visualize your body as it burns off all of the excess fat that has been stored in the same simple and efficient manner.
+
+As your repeat the incantation below three times, maintain your attention on that image:
+
+Fire, become alive within me,
+Burn away all the unneeded fat,
+Flame, heat my body up,
+As the speed of my metabolism increases.
+
+You must next take your spices, pour them into the cloth pouch and shut it, if you have already performed the spell, the spices should already be in the pouch, there is no need for another one to be created, the one that you created the same day is what you should use. The pouch should then be circled around the candle three times, clockwise. As you do so, visualize that is absorbs the candles heat.
+
+State: So Mote It Be
+
+Proceed to blow the candle out and close your circle.
+
+Always keep the pouch with the spices near your body, for as long as you want to lose weight. If placed close to your stomach, it will be the most effective.
+After each meal, for a minute or so you should hold the pouch in your left hand, visualize that the heat from it is being absorbed into you, the warmth is being pulled up along your arm and on into your stomach. You will find that the calories from the meals will begin being burned more rapidly by your body, this will bring about over time, weight loss that is healthy and effective.
+
+About the author: [Moondog](https://learningwitchcraft.com/profile/?tthayer/)
+
+Tell us something about yourself.

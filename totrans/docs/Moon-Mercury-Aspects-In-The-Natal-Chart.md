@@ -1,0 +1,150 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:22:22
+-->
+
+# Moon-Mercury Aspects In The Natal Chart
+
+> 来源：[https://teaandrosemary.com/moon-mercury-aspects-natal/#0001-01-01](https://teaandrosemary.com/moon-mercury-aspects-natal/#0001-01-01)
+
+Moon-Mercury aspects will show how much your emotions and your rational mind are integrated.
+
+With the easier aspects, you probably have a flow between your logical mind and your feelings. However, the more difficult aspects can mean that your head and heart are at odds.
+
+These aspects also show how well you make decisions and communicate with other people emotionally and intellectually.
+
+## Moon Conjunct Mercury
+
+If you have your Moon conjunct Mercury, your rational mind and your emotions are naturally merged. 
+
+This means that your logical mind may seem more emotional. It can be difficult to figure out what you’re feeling versus what is true.
+
+You tend to become very emotionally attached to people, places, memories, or even rational ideas with Moon conjunct Mercury. Although you can easily discuss your feelings, you can also be *too* emotional at times.
+
+You probably find friends who respect your emotional openness. You’re very expressive and it’s hard for you to hide when you feel.
+
+However, you also have a strong rational side. You have a great emotional memory and can pick up a lot of information from your surroundings, through both feelings and attention to detail
+
+You will find that you become overly attached to things, especially those things in the house where your Moon conjunct Mercury aspect falls. For example, this would manifest with partnerships in the 7th house, or as career choices/public image in the 10th house.
+
+With Moon conjunct Mercury, you have a very high emotional intelligence, so it’s easy for you to intuit what other people are trying to say. You may have great natural communication skills.
+
+On the downside, you have trouble getting truly invested in projects or people if you aren’t *emotionally* invested, too. Logic alone doesn’t hold your interest.
+
+Any rational thinking is almost always clouded by your emotions. It’s *very* hard for you to see things clearly, especially if you have a strong attachment to a person or situation. It’s easy for you to develop personal prejudices because of your feelings.
+
+Unless your Mercury is in a strong air sign, you will probably be better at creative things instead of rational or mathematical pursuits. 
+
+Sometimes, people with Moon conjunct Mercury can have rapid mood swings. Your moods change based on your thoughts, so it’s hard to be consistent. This will depend a lot on the sign that Moon conjunct Mercury is in.
+
+You may find that you have natural psychic or intuitive abilities. However, much like your abstract thought, your intuition tends to be clouded by your emotions, so it’s hard to figure out when something is real versus when you just *want* something to be real. Your dreams and visions are always influenced by your emotions.
+
+In social situations, you have genuine feelings of care for other people with Moon conjunct Mercury. It’s easy for you to attract friends who enjoy your emotional sensitivity. Intimate relationships will be very important to you with this aspect.
+
+Although your emotions tend to cloud your judgment, you may spend a lot of time trying to figure out your feelings in a logical way. You don’t like to *sit* in your feelings because they’re so changeable, so you try to figure them out, but you can never quite *get* them.
+
+You may experience extra anxiety with this Moon conjunct Mercury placement. You’re extra sensitive, which can be a great thing when you need to use your intuition, but you also pick up on the energy of other people easily and this affects your moods.
+
+Ultimately with Moon conjunct Mercury, you need to figure out *when* to use your emotions verses *when* to use your rational mind. At times, you will have the best results by merging the two.
+
+The path with Moon conjunct Mercury is to learn how to engage only one of these planets and use it independently. 
+
+## Moon Trine Mercury
+
+The Moon trine Mercury aspect means that your emotions and your rational mind flow together naturally. You know when to integrate your feelings with logic on an as-needed basis.
+
+You use the Moon’s instinctive and intuitive energy alongside the rational mind that is Mercury. 
+
+Most of the time, your emotions are in-line with logical reasoning. You won’t often find that you’re torn between your head and heart.
+
+You’re a perceptive person with Moon trine Mercury. It’s easy for you to read people. You may even have psychic or intuitive abilities. You may be great at giving advice and helping others.
+
+You also pick up on the body language of other people quite easily. You know how to read people and can intuit what they want you to say and how they want you to help them.
+
+With Moon trine Mercury, you’re able to arrive at an accurate assessment of any situation. You compare your own thoughts and emotions to the facts and don’t encounter much conflict along the way.
+
+You have a lot of common sense *and* emotional intelligence. You solve problems using logic but *don’t* ignore your feelings.
+
+This Moon trine Mercury placement is very easy and natural! 
+
+## Moon Sextile Mercury
+
+If you have the Moon sextile Mercury aspect, you have an opportunity to enhance your emotional nature through your rational mind. With a bit of work, you can connect your emotional and intellectual selves to make more wholesome decisions.
+
+You tend to have a strong memory, especially based on emotional recollection. However, your intellect is also naturally strong.
+
+With a bit of practice, you can learn how to integrate your emotions into your conscious mind. 
+
+This means that you will express your Moon’s qualities more fully. You’ll learn to communicate about your emotions and be more intuitive, but you won’t disregard the rational mind, either.
+
+With Moon sextile Mercury, you can learn how become more intuitive. This comes through conversation with other people as you figure out how to sense energy and read body language.
+
+To develop these skills, focus on reading your intuition. You will feel when something is “off,” and this is an opportunity to rationally look at what you’re feeling and why.
+
+Psychic work can also be helpful to develop these qualities, as can research into the human brain and the logical mind through psychology, neurology, philosophy, or spirituality.
+
+## Moon Opposition Mercury
+
+With Moon opposition Mercury, you have a constant conflict between your heart and your head.
+
+In most situations, your emotions and contradict the logic and reason that you *know* to be true. Your mind wants something different from what your feelings say.
+
+You will probably waver between the two because you’re never sure which to pick. You could be extremely emotional, only to snap back into your colder sense of logic a second later.
+
+With Moon opposition Mercury, you never know how to blend your feelings with your rational mind. It can feel like they’re islands apart. In fact, you may not even want to blend them, and might see emotions as bad or something to be dealt with separately.
+
+You tend to be either over-emotional or over-rational, depending on the situation. You may swing back and forth; which you choose will depend on what’s going on *and* how strongly you feel.
+
+However, you probably don’t realize that this Moon opposition Mercury aspect causes you to make poor decisions. Most people know when they’ve made the right choice because their intuition agrees with logic. This rarely happens for you!
+
+You may have trouble communicating, or your words come across wrong. You feel like you never know quite what to say. In conversations *and* in your own mind, you have two competing voices that want to speak.
+
+Some people with Moon opposition Mercury have a lot of anxiety, especially concerning social or emotional situations.
+
+You may also have trouble making decisions because you truly don’t know which path to follow. Your emotions and logic both feel a bit biased.
+
+Sometimes, these Moon opposition Mercury issues arise because of your relationship with your mother or with nurture itself. Your rational mind develops, separately from your emotions, in order to escape your own pain.
+
+However, this will depend on the sign that the aspect is in.
+
+With Moon opposition Mercury, you are seeking unity between the head and the heart. Ultimately, you need to find balance between your emotions and your rational mind.
+
+It can actually be beneficial to separate the emotional side and the logical mind, but it’s important that you learn how to integrate them, too.
+
+This will come by digging into your emotions to figure out *why* you feel what you feel. Remember that there is always a logical reason for your feelings, even if they *seem* like they have no basis in reality.
+
+## Moon Square Mercury
+
+If you have the Moon square Mercury aspect in your natal chart, you may feel constant tension between your rational mind and your feelings. You are constantly questioning or debating between these two parts of yourself.
+
+You may often experience stress or frustration due to these conflicting energies. With the square, you’ll be put into situations where you’re *forced* to confront the discrepancies between your head and your heart.
+
+This Moon square Mercury aspect usually means that you have a lot of emotional issues from your childhood or past, especially relating to your mother or maternal figure.
+
+These emotional traumas can be seemingly small, yet they still impact you through the energy of this aspect. You get anxiety when you try to think about your emotions rationally, so you tend to separate your head and your heart, yet this doesn’t work either.
+
+You may have a lot of anxiety surrounding your emotions. It’s hard for you to process what you feel and to make accurate decisions. 
+
+With Moon square Mercury, you may even know that there is tension between your feelings and your rational mind, but you simply don’t know how to solve this problem within yourself.
+
+Your communication is also affected with Moon square Mercury. You might have trouble communicating with others in a way that is rational and still emotionally sensitive. You probably say things that feel right to *you*, but they come out as emotionally insensitive.
+
+Alternatively, you may have trouble expressing how you feel to others or even to yourself. This can make relationships, especially those that are personal or romantic, quite difficult.
+
+The Moon square Mercury aspect causes you to swing between emotional reactions and rational thoughts quite often, especially in the signs and houses of these planets. Others may see your mood swings the more they get to know you, and may realize that you often react emotionally even when you think you’re being logical.
+
+In fact, almost *all* of your reactions have an emotional tint. However, you probably *believe* that you’re solely using logic. With the Moon square Mercury placement, this is virtually impossible, at least at first.
+
+If you are able to transform this aspect, others may not see much of a change. The work needs to be done in your own mind because that is where the conflict lies.
+
+In order to deal with this Moon square Mercury aspect, you may fall back on ultra-fixed beliefs or values to create some sense of security. Many people with this aspect invest solely in science, in religion, or in some other value system that they can rely on.
+
+Be careful that you’re willing to consider the viewpoints of other people. Don’t react aggressively just because they challenge something that you believe. Remember that not everyone has this difficult aspect, and some people enjoy looking at things from different points of view!
+
+As you work through this Moon square Mercury placement, you will also be able to see various viewpoints. However, you need to engage your conscious mind and work to overcome this conflict.
+
+Conscious awareness is the key to working through this aspect. You need to accept the emotional side of you and *recognize* when you’re acting from a place of emotional trauma versus logic.
+
+When you acknowledge your emotions, you will find that a lot of your anxiety will ease. This can be very painful at first but becomes more natural with practice.
+
+Deal with your emotions instead of acting on them. When you can think about your emotions *logically* and acknowledge the full capacity of feelings within your mind, you know that you are well on your way to mastering this aspect.

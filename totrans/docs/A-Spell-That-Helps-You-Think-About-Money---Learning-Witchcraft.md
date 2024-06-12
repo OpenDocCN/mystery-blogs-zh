@@ -1,0 +1,34 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:16:24
+-->
+
+# A Spell That Helps You Think About Money - Learning Witchcraft
+
+> 来源：[https://learningwitchcraft.com/a-spell-that-helps-you-think-about-money/#0001-01-01](https://learningwitchcraft.com/a-spell-that-helps-you-think-about-money/#0001-01-01)
+
+Spend some time thinking about what your attitude is towards money before making this piece of magic. Do you tend to squander money recklessly? Or are you a skinflint with your money? If you do have problems with money, think about what your life would be like if all of your money problems were gone. And think about how much money you will need to comfortable financially.
+
+**You will need the following:**
+
+Green taper candle
+Seven coins
+Small bowl
+
+Place everything on the altar and lucky talismans and charms with power to make your magic stronger. It is even better to decorate your altar with glossy leaves and a green cloth.
+
+Once per day drop a single coin into your dish. Then on the seventh day, take the candle, think about how having more money would create new opportunities for you, then visualize prosperity flowing it. Once you feel it is the right time, place your candle in the center of the altar, use your right hand to pick the dish up and then allow the coins to fall into your left hand.
+
+Place a coin in front of you, and say:
+
+*May some money flow my way,*
+*Today and every day.*
+*And let this be done, and let it harm no one.*
+
+Get another coin out and place to the left of your first coin and say the incantation again. Keep doing this with each of your coins until there is a circle of coins around your candle. Once you have completed the circle, light your candle and visualize your seven coins giving your candle their power before it is sent into the atmosphere.
+
+While the candle is burning, focus on the flame and reflect on your attitude towards money again, and how you can change it so that you are a more financially responsible individual. (If you already were this kind of person, you wouldn’t have to cast this spell!) Once the candle is burned out or it is time to extinguish it, put the coins back in the bowl. Put a coin inside your pocket each day, in addition to your loose change. Replace it with one or two coins from your change that is left over from the day before. Make sure to have seven coins at least in the bowl. If you do that, you will find yourself becoming a more financially wise individual and more opportunities for making money will start coming to you. It is completely up to you to recognize them, so once you do, make sure to seize your opportunities!
+
+About the author: [Moondog](https://learningwitchcraft.com/profile/?tthayer/)
+
+Tell us something about yourself.
