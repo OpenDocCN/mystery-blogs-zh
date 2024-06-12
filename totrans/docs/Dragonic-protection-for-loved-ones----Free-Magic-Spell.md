@@ -1,0 +1,89 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:15:19
+-->
+
+# Dragonic protection for loved ones. - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/spiritual_spells/defense_spells/26814/page.html#0001-01-01](https://www.spellsofmagic.com/spells/spiritual_spells/defense_spells/26814/page.html#0001-01-01)
+
+<main role="main">
+
+# Dragonic protection for loved ones.
+
+This is a ritual that calls on the powers of dragons, to protect you and the people you hold dear.
+
+ ## Casting Instructions for 'Dragonic protection for loved ones.'
+
+**You will need the following items for this spell:**
+
+*   A candle.
+
+*   Any kind of natural incense.
+
+**You will need the following items for this spell:**
+
+*   A candle.
+
+*   Any kind of natural incense.
+
+ ( A tip for people that have difficulties to clear their mind or concentrate, look up binaural beats on youtube, these music video's contain brainwaves and can really help you to concentrate, I reccomend using the Alpha Brainwaves)
+
+Light your candle and incense and enter a deep meditation, then once you have cleared your mind Imagine the ones you want to protect being engulfed in a thin layer of protective energy as you recite the following prayer to call for the aid of dragons (remember to speak in a clear but respectfull and most of all calm voice, Dragons do not like to be commanded, and they prefer a calm mind.)
+
+Quis sapiens et potens draconum ope tutatus sum supplex tuos diligere et nutrire et audite vocem meam et protegi Sic fiat!
+
+(Translation: Oh wise and powerful dragons, I humbly call thy aid in protecting those I love and cherish now hear my plea and let them be protected so mote it be!). 
+
+  **ABOUT THE AUTHOR**
+
+[**SpyroDragon**](/profile.html?profile=578310)
+
+SpyroDragon has been a member of the site for 4 years, since Feb 20, 2020 
+
+### Comments
+
+Comments are open to
+
+[members](/login.html)
+
+.
+
+[Join today](/login.html)
+
+and be part of the largest pagan / new age community online.
+
+If you wish to publish your stories, may I suggest Fanfic.net since this site does not permit roleplaying.
+
+Dear Tadashi, sorry if it came over as roleplay, because it really is not....This is a story about what happened to me in real life....and also I would never write something like roleplay on a website that does not permit roleplaying.....because I am one of those people that DO still read the rules. Have a nice day
+
+A story of what happened to you in real life? It is a spell you made up that you claim works for you. Reading it over, coupled with my base level knowledge of both Latin and dragons leads me to conclude you either made the whole thing up, or you feel it worked for you. I have no doubt you can send out the intention to protect your loved ones since many spells work that way, but calling on dragons and using a specific brainwave while reciting something you typed into Google translate will not work for the majority of people because it is not a real spell. You could improve it, but as written, it is not real.
+
+Certainly not a bad process for a quick working. Simple concept, clean and easy to do, and overall I think this is in effect a nice way to offer a prayer of safety and protection. I fail to see any role-playing in this. ... unless something has been edited out since it was first published. Personally , I prefer to just use plain English when doing a working... though that is just a preference as I am a bit too lazy to be learning new languages. To me this is perfectly sound in regards to the philosophies behind magic and energy working.
+
+Thanks for saying that.....it motivates me a lot, hearing people apreaciate my works. 😇
+
+Seems plausible, but I doubt Latin is required [you need to understand what your saying or your words won't have power] Dragon's understand what you're saying regardless of language, so I would go with the English translation.
+
+Nekoshema is definitely knowledgeable when it comes to draconic energies in magick so I'll trust that this is plausible, but I definitely agree that there's no reason to use Latin. Also, I'm certainly not a Latin expert, but I took it for a year, and the Latin in this is not correct, both with incorrect words and huge grammatical errors, and was very obviously put into google translate (which is very bad at translating Latin). If you're going to post a spell it might be best to use languages you have some knowledge in.
+
+Edit attempted. Thank you for the English translation or if not the exact translation, alternative words for the spells purpose or intent. I personally would not use the Latin. As chance for mispronunciation is very high.
+
+* * *
+
+* * *
+
+Is this content used without proper permission?
+Please report any violations of copyright via our [contact](/contact.html?comment=copyright&offending=https%3a%2f%2fwww%2espellsofmagic%2ecom%2fspells%2fspiritual%5fspells%2fdefense%5fspells%2f26814%2fpage%2ehtml) page.
+
+* * *
+
+*****
+
+All information on this page is provided by the coven or person named and the contents of this page is not mediated by the administrators of the website. Please use common sense when following any directions on this page. Do not ingest anything which does not seem safe. If you suspect the content of this page to be intentionally deceiving please
+
+[contact us](/contact.html)
+
+immediately.
+
+</main>
