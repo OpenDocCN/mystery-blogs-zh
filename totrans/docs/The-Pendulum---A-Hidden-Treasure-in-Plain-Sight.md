@@ -1,0 +1,38 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:32:41
+-->
+
+# The Pendulum - A Hidden Treasure in Plain Sight
+
+> 来源：[https://www.magickandwitchcraft.com/post/the-pendulum-a-hidden-treasure-in-plain-sight#0001-01-01](https://www.magickandwitchcraft.com/post/the-pendulum-a-hidden-treasure-in-plain-sight#0001-01-01)
+
+*Pendulum is one of the most misunderstood and underappreciated tools in the occult . Even advanced practitioners sometimes think it's a "party trick" because they might have little to no practical experience with using it and have come to accept this idea without properly investigating it further.*
+
+> The pendulum is actually one of the most practical tools in the occult, because it measures energy patterns, which is extremely valuable for energy work.
+
+##### In fact, the pendulum is one of the few tools that has nearly infinite applications available to it, as its chief function is energy, and, therefore, there's almost no end to the experiments that can be done with it or ways that it can be used.
+
+But, psychologically, it makes sense that it confuses people. Really, just the idea that subtle energy can effectively influence things in such a way, like the pendulum, is incredible and almost doesn't seem believable.
+
+But experimenting with it, time and time again, shows repeated results, and really does make it more aligned with science than people might realize. In fact, it would only seem that because science currently accepts a more material model and is still learning to understand such things, that this is the only barrier separating it from being used and fully accepted as a scientific tool with nearly endless applications.
+
+> *Many people immediately think about how it's used for one specific thing, like finding answers to future questions, but don't always realize how multi-faceted it is, and that there's so much more that you can do with the pendulum.*
+
+For example, you can use the pendulum to **measure the subtle energy of a person's body**. Not just the energy of the chakras, but literally every part of your body — anything. It goes without saying that this is incredibly useful because when one learns the pendulum's patterns, they're able to see what kind of state the different parts of their body are in, energetically, and where there's tension that needs to be released or brought back into harmony and balance with the rest of the body's energy.
+
+> The pendulum can also be quite useful for **deciding what clothing can be energetically beneficial** or enhancing to your energy when wearing it.
+
+Clothing can actually influence your energy quite a bit. Many people don't even think about it, but clothing, like anything else, has different energy patterns, and so, your clothing energetically influences you the whole time you're wearing it, so it can be good to find clothing that has an energy pattern that will be beneficial to your energy and not impede it in any way.
+
+You can even do an experiment where you keep track of how you feel when wearing the same clothing, but on different days, and compare how you felt on those different days with one article of clothing compared to other articles of clothing on different days, and if the feelings are consistent, you can energetically use wearing certain articles of clothing to your advantage to help enhance your energy.
+
+One day, modern society will get there in its understanding of the pendulum — that it's a tool that's **showing you the energy patterns that exist in the energy all around us** — but, for now, it's something that also still makes the pendulum one of the most occult tools available as well, because so few people, sometimes magicians included, don't even understand its full potential. And there's no problem with this, but you can be one of the few who does get to take advantage of it and make your life better.
+
+### As the occult means "hidden, we can certainly say that the pendulum is an occult treasure whose secrets are ready to be revealed by it.
+
+Magick & Witchcraft Online Courses
+
+> Learn witchcraft,with our bestselling **Magick & Witchcraft online courses, enrolling students since 2015.**
+
+> We offer a whole range of **witchcraft online training**, cut down to easy to follow, step-by-step lessons. We cover topics such as *White Magick, Tarot, Clairvoyance, Herbal Spells, Candle Magick, Sigil Magick, Aura Analysis, Akashic Records and more*.**Each course offers a free preview.**

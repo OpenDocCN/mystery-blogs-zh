@@ -1,0 +1,58 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:32:31
+-->
+
+# 5 Magical Benefits of Amethyst
+
+> 来源：[https://www.magickandwitchcraft.com/post/magical_benefits_of_amethyst#0001-01-01](https://www.magickandwitchcraft.com/post/magical_benefits_of_amethyst#0001-01-01)
+
+Amethyst is an incredibly versatile crystal that has been used in many forms of witchcraft over the centuries. It's one of the **most popular and commonly used crystals** in the craft, and it's easy to see why – it's a powerful stone that can be used for a wide range of purposes.
+
+Amethyst is a variety of quartz and has a purple hue that can range from light lavender to deep violet. It has a powerful energy that can be used for protection, manifestation, healing, and more. In witchcraft, it is a popular choice for spell-casting, divination, and practicing rituals.
+
+*Let's have a look at the 5 magical benefits of Amethyst. They are very intuitive stones and can support a wide range of esoteric workings and rituals.*
+
+> Amethysts with their purple tint are being often connected to the **Crown chakra** and the higher level energies of spiritual development like divination, mediumship, meditation and psychic awareness.
+
+They can work as a useful reservoir of magical energy in various spell, bringing in that extra divine power. Eventough they tend to be closely linked to more feminine energies due to their connection to intuition, they make quite flexible, all-round stones and can find their use in manifestation spells, just as well as protective spells or in spiritual cleansing rituals.
+
+***Let's have a look at some practical tips on how to use the magical energies of Amethyst.***
+
+## 1\. Enhances magical energies
+
+As a reservoir of divine energy they can work as an extra "battery" of power in a spell. You can place them around your candle, during candle spells, or add them to spell jars and spell bags. They also make a great energy sending pieces in crystal grids.
+
+Amethyst is also an excellent crystal for manifesting abundance, wealth, and success. Place it in your wallet or near your bed to attract good luck and increase your chances of achieving your goals.
+
+## 2\. Makes good flexible Spell ingredient
+
+Due to the fairly neutral nature of divine energies, amethysts can fit most spells. Their energy is connecting whatever desire is behind your spell or ritual to the higher realms. They can work well in unconditional love spells or talismans, cleansing baths and soaks or manifestation candle magick.
+
+Additionally, Amethyst can be used for cleansing yourself and your home. Place it in your home to absorb negative energies, or carry it with you to rid yourself of any unwanted energies.
+
+> *Because of their flexible nature, they make a great all round stones to keep around, for when you are lacking ideas for spell ingredients.*
+
+## 3\. Great for meditating
+
+The crown chakra connection to the Amethyst, together with their peaceful violet shades makes them a great companionship for meditation. During your next meditation, simply place one in front of you or hold one in the palms of your hands and let it help to bring clarity, focus, and inner peace. Amethyst is also beneficial for healing both energetic and emotional issues. Place it on the affected, or hold it in your hand to bring emotional balance
+
+## 4\. Companionship for Divination Readings
+
+The same way Amethysts support your meditation efforts, they can support your psychic or tarot readings as well. Place one on your divination reading table, for enhancement of your psychic visions during the reading.
+
+## 5\. Makes a great material for tools and talismans
+
+You can often see Amethysts being used as a stone for carving magical rune sets or as a part of magical wands. This can be a great option if you are bit more on the crafty side. (well, you can still buy them, if you are not) But using amethyst as a tool can be as simple as getting one shaped as a point and use it as a wand.
+
+## And they are actually quite easy to come by...
+
+Amethyst is an incredibly versatile and powerful stone that can be used for a variety of purposes in witchcraft. Whether you're looking for protection, manifestation, healing, or simply want to enhance your meditative practice, Amethyst is an excellent choice. I always recommend to have a few around in your magical kit, as they are one of the most commonly used stones for various spells and as a result you can find them in most spiritual or crystal shops world wide. Win win!
+
+Astrid "The Psychic Witch"
+
+Magick & Witchcraft Online Courses
+
+> Learn witchcraft,with our bestselling **Magick & Witchcraft online courses, enrolling students since 2015\.**
+
+> Are you interested in Witchcraft? Would you like to learn how to do spell jars, candle magic, talismans or how to use moon phases for your spells? We have a whole online course with close to 5.5 hours of on-demand Video Lessons.
