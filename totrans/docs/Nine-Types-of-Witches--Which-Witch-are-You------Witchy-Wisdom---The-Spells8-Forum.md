@@ -1,0 +1,52 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:56:49
+-->
+
+# Nine Types of Witches: Which Witch are You? ⭐ - Witchy Wisdom - The Spells8 Forum
+
+> 来源：[https://spells8.com/9-types-of-witches-which-one-are-you/#0001-01-01](https://spells8.com/9-types-of-witches-which-one-are-you/#0001-01-01)
+
+It is human nature to want to label your witchcraft. Since the dawn of humanity, we have given labels to everything, so why should witchcraft be any different? Your witchcraft can have a label depending on the way you practice. Below, I have listed the most common labels as well as an explanation.
+
+## Wiccan Witch
+
+A [Wiccan](https://spells8.com/courses/wicca-self-initiation/) Witch is someone who practices witchcraft within the confines of Wicca. They follow the Wiccan Rede and call upon the Lord and Lady when doing spellwork and ritual. A Wiccan Witch can be a witch initiated into one of the many different Wiccan traditions or a solitary neo-Wiccan.
+
+## Traditional Witch
+
+A Traditional Witch is someone who practices [witchcraft](https://spells8.com/magic/spells/spell-collections/) within their folklore or “old tradition”. These traditions and folklore practices generally pre-date Wicca and vary depending on the area that the particular witch lives in and their ancestry.
+
+## Green Witch
+
+A [Green Witch](https://spells8.com/courses/green-witchcraft-course/) is someone who uses plants in their witchcraft. They may use herbs and spices in their spellwork, or they may grow a garden. Their witchcraft is predominantly focused around nature and the plants it offers. They feel closest to their witchcraft and practice when they are close to nature.
+
+## Hedge Witch
+
+A Hedge Witch is someone who walks the [hedges of reality](https://spells8.com/purple-candle-meditation/). Their witchcraft involves travel between worlds, and they practice communication between this world and others regularly. They are called hedge witches because of the ease with which they “cross the hedge” from the physical to the astral. Hedge Witches may practice astral projection and be adept at divination and spirit communication.
+
+## Kitchen Witch
+
+A Kitchen Witch is someone whos witchcraft is mainly focused in the kitchen. Kitchen Witches cook their magick, imbuing magical spells, [herbs](https://spells8.com/topic/introduction-to-herbal-witchcraft/), and potions with the culinary arts. Most kitchen witchcraft is associated with healing and protection, and kitchen witches use the tools at their disposal and their energy to create their magick.
+
+## Sea Witch
+
+A Sea Witch is someone who draws power from the [ocean](https://spells8.com/money-spell-sea-salt/). They feel closer to their witchcraft when by the sea, and they may be more affected by the phases of the moon. Sea witches feel connected to the element of water and may use salt water, sand, and seashells in their magick. They may also enjoy singing or music, as the sea is often associated with the myths of the Sirens.
+
+## Secular Witch
+
+A Secular Witch is one who practices any form of witchcraft outside the confines of a religion or spiritual practice.
+
+## Religious Witch
+
+A Religious Witch is the opposite of a secular witch. A Religious Witch is someone who practices witchcraft within the confines of their religion, whatever that may be.
+
+## Eclectic Witch
+
+An Eclectic Witch is one who draws on the many different traditions, practices, and spiritualities available to them to craft an individualized belief system. They do not follow any particular tradition and they tend to make their own rules.
+
+* * *
+
+Do you fall into any of these categories? Where do you think you fall?
+
+It’s okay if you fall into more than one, or none of them! Keep in mind that labels are what you make them, and labeling your craft is not necessary.

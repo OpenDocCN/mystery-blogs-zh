@@ -1,0 +1,60 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:56:54
+-->
+
+# Magickal Names - How do you choose? - Witchy Wisdom - The Spells8 Forum
+
+> 来源：[https://spells8.com/how-to-choose-your-magickal-name/#0001-01-01](https://spells8.com/how-to-choose-your-magickal-name/#0001-01-01)
+
+The idea of choosing a magickal name - or craft name - has a history shrouded in mystery. There is no historical reason for people to choose a magickal name, but some have speculated that it was due to Christianity and persecution. This makes sense because, when captured and tortured for practicing witchcraft, you would be made to give up the names of your fellow witches. But what if you all only knew each other by your craft names, and those were names kept from everyone else? It would make it difficult for the church to find the other witches. That is a theory, anyway.
+
+# The Purpose of a Magickal Name
+
+There are a variety of reasons why one might choose to use a magickal name. Maybe they are afraid of getting caught and “outed”. Maybe they simply like the anonymity it provides. Maybe it means something to them. Or maybe, like [Lady Althaea](https://www.ladyalthaea.com/every-day-is-magickal/dedication-and-names), their magickal name is chosen for them by their Gods.
+
+The magickal name can become part of your identity and, when used, is like donning your robes for a ceremony or ritual. It becomes who you are at that moment, and it is a reminder to yourself and those around you that this is a time separated from the mundane.
+
+# How to Choose a Magickal Name
+
+### Pick something that has meaning
+
+It was speculated that the mottos people went by in the Hermetic Order of the Golden Dawn had some significant meaning in their life. Names like *Sapere Aude* and *Perdurabo* sound mystical to those of us who do not speak Latin, but these names simply mean “Dare to be wise” and “I will last through”. If you are going to choose a magickal name for yourself, you can do so by choosing something that has meaning for you. If English is not your native language, choose something in your mother tongue for a deeper connection.
+
+### Pick something you like
+
+Instead of picking something that has a deep meaning, you could always just pick something that you like. There is nothing wrong with this if it fits in with your practice! Just be sure you are not appropriating from other cultures and the name you choose does not have an alternate meaning that could be misinterpreted by others.
+
+### Use numerology
+
+If you fancy numerology, you can use that to your advantage when choosing a magickal name. Figure out your birth number and then choose a name that has the same birth number. To figure out your birth number, add the digits in your date of birth together until you get a single digit. Let’s use mine as an example.
+
+My birthday is on November 8, 1991\. So, let’s break that down into digits. 11 8 1991\. Now you add them together.
+
+1+1+8+1+9+9+1=30
+
+Since I have a double-digit number, I then add those together as well.
+
+3+0=3
+
+My birth number is 3.
+
+Do this with your birthday until you have a single digit. Then, when choosing a birth name, choose one that has the same numerological number as your birth number. You can do this by using the table [here](https://www.lucky-name-numerology.com/numerology-3.html) that has the alphabet and their corresponding values.
+
+### Wait for it to be chosen for you
+
+If you do not want to choose a magickal name, you can wait for one to be chosen for you. This is what happened with Lady Althaea, and I highly recommend you read her post about her experience.
+
+# In Conclusion
+
+A magickal name is not something that I have found to be a requirement of any Gods. It might be a requirement of certain traditions of Wicca and witchcraft, but I could not tell you for certain.
+
+I do not have a magickal name. I have not chosen one, and one has not been chosen for me. At this point, I do not see the necessity of having a magickal name because I do not have to practice in secret, and my craft encompasses every part of my life anyway. My craft is who I am, and who I am at this point is Megan.
+
+* * *
+
+Sources and Further Reading
+
+* * *
+
+Do you have a magickal name? How did you choose yours?
