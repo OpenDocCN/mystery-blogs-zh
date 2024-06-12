@@ -1,0 +1,53 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:27:52
+-->
+
+# Starting Your Goddess Garden - Wise Witches and Witchcraft
+
+> 来源：[https://witchcraftandwitches.com/witches-garden/starting-goddess-garden/#0001-01-01](https://witchcraftandwitches.com/witches-garden/starting-goddess-garden/#0001-01-01)
+
+> “Pleasure for one hour, a bottle of wine. Pleasure for one year a marriage; but pleasure for a lifetime, a garden.”
+> **Chinese Proverb**
+
+If your mind is spinning with magical gardening ideas and your hands are itching to get dirty, then you’re in the right place. The process of creating goddess-themed gardens is whimsical and inspiring, not to mention educational. The question for most Wiccans is where to begin? At the beginning, of course.
+
+## Planting a Magickal Garden Dedicated to a Patron Goddess
+
+Get to know your Goddess by seeing her place in history, specifically her cultural setting. This alone might give you a great sense for your garden’s layout or embellishments. Let’s consider a Greek Goddess just for fun. You could use an oval design (the shape of the Coliseum) with some decorative pillars, some of which could have hanging plants, adding to the ambiance. These little touches make your Goddess feel right at home.
+
+**Magical Plants Sacred to the Goddess**
+
+If the Goddess has any special plants that she holds sacred, use them. In your Artemis garden grow daisies. For Bast, you better bring the catnip! Cerridwen likes vervain. Primroses please Freya, add coriander for Hathor, Iris for Isis, and some Carnations for Venus. About the only limitations you have in sacred plant selections are your regional weather and the size of your garden.
+
+**Patterns for Planting and Designing A Magic Garden**
+
+In magick, patterns are power For some Goddess gardens the pattern comes from a specified function, like having a clock garden for Horae, the goddess of time. (take the clock garden, for example). Other gardens may use geomantic patterns, like creating a square garden for the Earth Element with the symbolism of the four cardinal directions, four corners of creation and the four winds in mind. Alternatively, a circle is certainly apt because we live on a globe. Goddesses who would enjoy this garden include Gaia, Rhea, Danu and the Mother Goddess.
+
+**Stones, Minerals, Crystals, and Shells: Magickal Correspondences for Making The Magic More Powerful**
+
+As with the plants for your magical garden, choose stones that honor your Goddess or augment the energy of your pants. The sacred stones can be put into the soil, hung above a window sill (for window gardens), or placed on top of a firm dirt surface where it sustains magickal energy. Examples include using topaz for Amaterasu, black tourmaline for Aradia, green quartz for Brigit, jet for Hecate, coral for Oshun and moonstone for Seline.
+
+**Color Magic in a Magick Garden**
+
+Every color has a specific vibration. That vibration harmonizes with a variety of magickal goals. The more intense the color is, the more potent it is. For example, adding a deep red rose to a love garden symbolically deepens the love being grown there. Consequently, when a goddess does not have specific sacred plants, or when you don’t like the plants suggested, use colors matching your theme and goals. You might incorporate pink plants or accent pieces for Aphrodite, red and white for Brigit, green for Demeter and Isis, green and white for Kuan Yin, and fire-red for Vesta.
+
+**Decoratives: Witchy Elements for a Magical Gardening Touch**
+
+Gardening stores have so many nifty products now, from statuary to reflection balls, that it makes a Goddess gardener giddy with delight. How about some fairy lights or a small fountain feature? Maybe stepping stones, a rustic iron gate or a bird feeder is more to your liking. And don’t forget some type of Goddess figurine. Warning: decorative touches can become addictive and hazardous to one’s budget!
+
+## Picking a Cardinal Direction and Magikal Location for a Garden
+
+In both magick and Feng Shui, the direction your garden faces and it’s placement in your yard both matter if you want to increase the good vibes in your garden. Feng Shui tells us that the North facing garden sustains plants that like moisture while the South facing garden supports greenery that loves sunlight and warm weather. Put metal wind chimes in the Western-oriented garden for good luck, and place small ornamental trees in the Eastern garden for the best flow of chi (life energy).
+
+You might also employ the correspondences from Witchcraft in determining the location of your garden. Air resides in the East representing communication and intelligence, which would suit the Greek Goddess Iris nicely. Fire, residing in the South, corresponds with the Hawaiian Volcano Goddess Pele. Water is in the West, which would make the Nile Goddess Anuket quite pleased. Lastly, we have Earth in the Northern, a location ideal for the Incan Goddess Pachamama.
+
+Visit our sister site BuildingBeautifuSouls.com if you’d like to learn more about the magical meaning of the four [**Cardinal Directions**](https://www.buildingbeautifulsouls.com/symbols-meanings/cardinal-directions/).
+
+**After-Harvest Applications: Reaping More than the Initial Harvest**
+
+With all that good energy growing, it would be a shame not to use some of it! There are so many spiritual ways of using the plants you’ve grown, let alone mundane ones! Why not make a blessing potion for everyone in your house? Design protective herbal charms that your friends can carry with them or place in their cars. Make dream pillows. And don’t forget to tap into your inner Kitchen Witch for some sassy edible magic.
+
+**-May your green thumb grow even greener!**
+
+Adapted from, “Gardening with the Goddess,” by Trish Telesco. All rights reserved.

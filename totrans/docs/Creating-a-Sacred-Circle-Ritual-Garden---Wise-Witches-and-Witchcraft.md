@@ -1,0 +1,143 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:27:19
+-->
+
+# Creating a Sacred Circle Ritual Garden - Wise Witches and Witchcraft
+
+> 来源：[https://witchcraftandwitches.com/witches-garden/creating-a-sacred-circle-ritual-garden/#0001-01-01](https://witchcraftandwitches.com/witches-garden/creating-a-sacred-circle-ritual-garden/#0001-01-01)
+
+> “Everything an Indian does is in a circle, and that is because the power of the World always works in circles, and everything tries to be round . . . The sky is round and I have heard the earth is round like a ball, and so are all the stars. The wind in its greatest power whirls, birds make their nest in circles, for theirs is the same religion as ours. The sun comes forth and goes down again in a circle. The moon does the same and both are round. Even the seasons form a great circle in their changing, and always come back again to where they were. Our teepees were round like the nests of birds. And they were always set in a circle, the nation’s hoop.”
+> **– Chief Black Elk**
+
+In magickal traditions, it’s common to create [**sacred space**](https://witchcraftandwitches.com/book-of-shadows/wiccan-guide-for-creating-sacred-space/) in the shape of a circle. This shape represents many things including the wheel of time; the wheel of life, death, and rebirth. This is the sphere where we step out of the mundane into the metaphysical and spiritual. It is an energetic globe upon which all who stand are of equal importance in the greater scheme of things. The sacred circle acts as a protective boundary, keeping out negative energies and holding in magickal power until it’s ready to be released and guided to its destination.
+
+## A Magic Circle in Wicca
+
+The traditional sacred circle in [**Wicca**](https://witchcraftandwitches.com/wicca-wiccan/wicca-vs-witchcraft-difference-between-religion-craft/) and among various other Witches and Pagans is a kind of mandala that has four distinct parts and a central point.
+
+The Northern Quarter of the circle represents the [**Earth Element**](https://witchcraftandwitches.com/witchcraft/the-elements-in-magic-witchcraft-earth-meaning-symbolism-and-uses/)
+The Easter Quarter represents the [**Air Element**](https://witchcraftandwitches.com/witchcraft/elements-in-magic-witchcraft-air-meaning-symbolism-and-uses/)
+The Southern Quarter represents the [**Fire Element**](https://witchcraftandwitches.com/witchcraft/the-elements-in-magic-and-witchcraft-fire-symbolism-meaning-uses/)
+The Western Quarter represents the [**Water Element**](https://witchcraftandwitches.com/witchcraft/the-elements-in-magic-witchcraft-water-meaning-symbolism-and-uses/)
+The Center Point represents [**Aether**](https://witchcraftandwitches.com/witchcraft/the-elements-in-magic-witchcraft-earth-meaning-symbolism-and-uses/) or Spirit
+
+In each of these regions spiritual beings (sometimes referred to as Watchtowers) reside. When we invite them into our workings, they provide extra sympathetic energy and safety from unwanted influences. So how might this idea translate into magical gardening efforts? It’s really not difficult, and we have some history to thank for some interesting ideas.
+
+**Geometric Garden Traditions**
+
+Witches are certainly not the first people to think of making their gardens into pleasing and functional designs. The Monasteries in medieval Europe revealed in this idea. Persians made impeccable gardens that included food crops along with medicinal herbs, water features, topiary and border work that acted like the black and white outline for the whole design. While our Circle Gardens need not be quite so complex, using a form like a circle garden can decrease maintenance while also achieving the desired result.
+
+**Your Yard as Sacred Space**
+
+For those fortunate enough to have large lawns you can create a large circular garden big enough for ritual work. The focal point (the center of the circle) would be whatever you design for an [**magic altar**](https://witchcraftandwitches.com/wicca-wiccan/setting-up-your-altar-for-wicca-or-witchcraft/). Paths through the garden in the form of a cross lay out your Four Quarters. Near the edge of the garden, you might also have another path that goes all the way around for dancing the land.
+
+## 6 Steps for Laying out Your Sacred Circle Garden
+
+**You need a few simple tools to set out your garden.**
+
+*   Stakes, flags or other markers for the perimeter (popsicle sticks work)
+*   A hammer
+*   String or twine
+*   A gardening trowel
+*   Cardboard or landscaping fabric
+*   Edging material
+*   Wheelbarrow
+*   A pointed shovel
+*   Landscaping pebbles, wood chips or rubber chips
+*   Healthy gardening soil
+*   Decorative elements and
+*   The plants
+
+**Step One**: Marking off the radius of your circle. Place one steak in the center of the area where your finished garden will reside using a hammer so it’s stable. Attach your string in a length suited to your finished goal. For comfort allow for 3′ per person who will be using this area. So if you have 6 people you will need a 9′ radius and an 18′ circle.
+
+Using the 9′ twine walk clockwise around the circle space placing your flags or other markers. Use at least 12 at each hour point of the circle. This also gives you four quarter designations!
+
+[wisew_rectangle_large align=”left”]**Step Two**: Measuring and cutting cardboard or landscaping fabric. These pieces need to be in the width and length you want for your walkways. Professionals recommend 4′ wide walkways so two people can walk side-by-side. Cut enough pieces to lay out 9′ long by 4′ wide paths. Put them down North to South first, marking them again with your stakes, followed by East to West.
+
+Now you have a decision to make. Do you want to leave your paths as grass or cover them with some type of landscaping product? A lot of Neo-Pagans opt for grass because it’s softer on bare feet. Also grass doesn’t move out of place like wood chips or small stones.
+
+**Step Three**: Placing borders. You want to put borders along your pathways so that the grass doesn’t creep in from there to your plants. Borders make upkeep much easier. Use your trowel or shovel, digging out the lines you’ve set up with flags. Put down the border and refill with soil.
+
+**Step Four**: Prepare the soil. Even if you have relatively healthy topsoil you’ll want to add some garden soil into your mix (and possibly some Eco-friendly fertilizer). Dig up the soil in each Quarter, breaking it into small pieces then mix in your garden additives.
+
+**Step Five**: Add border material. Edging stones help keep your good soil in each designated area, while also providing visual appeal and tidiness. Some people use small evergreens like Winter Heaths, Blue Star Juniper and English Boxwood instead. These remain small and you can trim them easily.[wisew_rectangle_large align=”right”]
+
+**Step Six**: Sewing elemental plants and adding decorative touches. You already have the perfect Circle for energizing your magical plants. Now you can reinforce that intent by sowing the garden using each plant’s Elemental correspondence. For example:
+
+*   North: A Fern border with a center of Tulips, a trellis of Honeysuckle and a stone bench (for the Earth Element).
+*   East: A Mint or Parsley border around a Lavender bed, Lily of the Valley and Honesty. Add a wind chime for the Air Element.
+*   South: A thistle and snapdragon border around sunflowers and marigolds. Add a golden scrying ball that represents the Sun and Fire Element.
+*   West: A border of Thyme and Tansy around Daffodil, Heather, Periwinkle and Tea Rose. Use a birdbath for the Water Element.
+
+**Color Code Your Sacred Circle Garden**
+
+Depending on your location some plants that are perfect for an Elemental correspondence but not ideal for your USDA growing zone. You want your Circle Garden to thrive, so take the time to research hardy plants. If you cannot find something that fits, your next best option is using a flower or herb’s [**color**](https://witchcraftandwitches.com/uncategorized/color-symbolism-meaning-and-uses-in-wicca-and-witchcraft/) for the association you want.
+
+**Earth Colors** – Green, Brown, Black
+**Air Colors** – Pale Blue, White, Light Yellow, Silver, Pastels
+**Fire Colors** – Red, Orange, Bright Yellow, Gold
+**Water Colors** – Blue, Aqua, Purple, Indigo
+
+## Invoking Blessings on Your Garden
+
+As you finish planting each Quarter, it’s nice to add an invocation to the Element of that Quarter. An invocation “invites” the energy into that space. Here is an example:
+
+**North/Earth**: *“Hail and welcome guardians of the Earth see here the work of my hands and be pleased. Bless this soil and all that grows herein to be filled with your energy for nurturing, for firm foundations, for prosperity. So be it.”*
+
+**East/Air**: *“Hail and welcome guardians of the Air see here the work of my hands and be pleased. Bless this soil and all that grows herein to be filled with your energy for inspiration, communication, motivation, and fresh outlooks. So be it.”*
+
+**South/Fire**: *“Hail and welcome guardians of the Fire see here the work of my hands and be pleased. Bless this soil and all that grows herein to be filled with your energy for passion, power, purification, and illumination. So be it.”*
+
+**West/Water**: *“Hail and welcome guardians of the Water see here the work of my hands and be pleased. Bless this soil and all that grows herein to be filled with your energy for healing, creativity, cleansing, and endurance. So be it.”*
+
+## The Sweet Smell of Magic
+
+If you’d like to add an aromatic element to your Circle Garden you can consider the plants that have strong scents for your garden. Our ancestors often did this too, growing flora for its aromatic effect. Egyptians, Greeks and the Babylonians used scented items in healer’s kits and as gifts to the Gods. Even Hippocrates advocated aromatics in his writings. So why not play with this idea in your Sacred Circle Garden?
+
+**Flowers & Herbs for Aromatherapy and Magic:**
+
+Some of the popular plants that appear in [**aromatherapy**](https://witchcraftandwitches.com/book-of-shadows/magical-aromatherapy-herb-flower-associations/) texts, along with their applications and Elemental correspondences, are detailed in the following list. Add them into your garden as you wish.
+
+**Anise**: Energy and protection; Air Element
+**Bergamot**: Anxiety and stress relief; Air Element
+**Carnation**: Health and vitality; Fire Element
+**Chamomile**: Emotional balance and calmness; Water Element
+**Clary**: Communication; Water Element
+**Coriander**: Decreasing aggravation; Fire Element
+**Dill**: Tension relief; Fire Element
+**Fennel**: Overcoming blockage; Water Element
+**Gardenia**: Accord and health; Water Element
+**Honeysuckle**: Prosperity; Earth Element
+**Hops**: Restfulness: Air Element
+**Hyacinth**: Meditation and focus; Water Element
+**Juniper**: Easing aches and pains; Fire Element
+**Lavender**: Insomnia, inner peace; Air Element
+**Lilac**: Psychic awareness; Water Element
+**Magnolia**: Spirituality; Earth Element
+**Marjoram**: Decreasing worries; Air Element
+**Mint**: Refreshed energy, memory improvement; Air or Fire Element
+**Pine**: Cleansing and purification: Air Element
+**Rose**: Love (including self-love): Water Element
+**Rose Geranium**: Balance, courage and harmony: Fire Element
+**Rosemary**: Mental keenness (especially memory): Fire element
+**Sage**: Clearing negative energy: Air Element
+**Sweetpea**: Strengthening friendship: Water Element
+**Thyme**: Improving personal wards: Water Element
+**Violet**: Self image: Water Element
+
+## Harvesting Your Garden:
+
+As plants reach their peak you may choose to harvest them for magical components. If you do, be sure to dry them properly. A netted bag works very well for even drying and keeping pests out. Put your dried plants into dark glass containers labeled not only with the name of the plant but also the Elemental association.
+
+Always give thanks to the plant and to the land when you harvest. You can do this by giving the plants a libation of blessed water or putting a small, energized [**sacred stone**](https://witchcraftandwitches.com/magic-healing-crystals-metals-gemstones/15-modern-uses-magical-crystals-stones/) into the soil. The second option also keeps focused magical energy saturating your soil.
+
+## Taking Magical Gardening Inside
+
+Not everyone is blessed with yard space, but that doesn’t mean you can’t have a symbolic Circle Garden indoors. You can accomplish this by using four planters (perhaps in elemental colors: Brown, Yellow, Red and Blue) places in appropriate parts of the home (preferably with decent natural light). Sew the plants that will thrive in those pots and carry the right Elemental energies. If you wish you can put a charged crystal or coin into the bottom of each planter.
+
+**Using your Magical Garden**
+
+There are wonderful ways to use your magical garden beyond working rituals and spells there. Walk there to clear your head and meditate. Improve your rapport with [**Plant Spirits**](https://witchcraftandwitches.com/witch/fairy-magic-devas-elementals-and-other-magical-spirits/). Or, after harvesting you can add your bounty to magical potions, oils, incense, power pouches and sachets as well as strewing them in a sacred space.
+
+A well-planned Sacred Circle Garden yields great joy from year to year. Change out plants so they better suit your needs. Weed the land and weed out negativity in your life. Step back and enjoy the beauty created by your two hands and a heart full of love.

@@ -1,0 +1,213 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:27:15
+-->
+
+# Magical Activities for Wiccan & Pagan Children - Wise Witches and Witchcraft
+
+> 来源：[https://witchcraftandwitches.com/magickal-kids/magical-activities-for-wiccan-pagan-children/#0001-01-01](https://witchcraftandwitches.com/magickal-kids/magical-activities-for-wiccan-pagan-children/#0001-01-01)
+
+> “I’ve found a more personal, pagan kind of religion to satisfy the spiritual side of things.”
+> **– Julian Clary**
+
+Wiccan and Pagan parents struggle with positive activities for their children just as any other mom or dad does. When it comes to spirituality finding fun, engaging activities that reflect our values can be challenging. This is especially true if you choose a non-dogmatic, more organic approach to sharing magical ideas and approaches to life.
+
+So let’s take a look at some ways in which you might engage children that have Wiccan and Pagan themes.
+
+## Animal Mimes
+
+Children have animal totems and guides too, even if they’re not consciously aware of them. Performing mimes is one way for the child to begin touching those [**Animal Guides**](https://witchcraftandwitches.com/spirit-animal-familiar/spirit-animal-wisdom-for-witches-wiccans-pagans/), and connecting more intimately with the animal kingdom.
+
+### Younger Children
+
+The first experiments with this activity prove most successful if patterned after a family pet or another animal that the child sees and experiences regularly. You can take some time to gather the symbolic information about the chosen creature beforehand, then begin a game of “pretend you’re a . . .” with younger children. As they mimic the animal, ask them how they feel, what they think it would be like to live as that animal, and so forth. Add whatever insights you can that you feel the child will understand.
+
+### Age 8 and Up
+
+Around the age of eight, children begin to comprehend much more about spirituality than before and can be told outright the purpose of such games. In this case, let them choose any animal they want to mimic and read up on it in a children’s encyclopedia or on the computer. Do some breathing exercises with them before they start the mime, and then see what develops. Don’t forget to ask questions and talk about the experience afterwards, so it has a greater impact.
+
+What’s nice about this play-acting is that it gets children to think of animals as more than just playthings, but as living creatures like themselves. This understanding and appreciation begins building a lifelong respect for the Mother that will help heal our planet in the future.
+
+## Canning and Baking
+
+Canning and baking during the fall holds a lot of potential for a bit of [**Kitchen Witchery**](https://witchcraftandwitches.com/kitchen-witch/kitchen-witch-tips-finding-magic-in-the-mundane/). You get to talk about the significance of the season and its crops with your child (a time of thanksgiving and preparation), and the idea of “preserving” the energies you’re creating via canning, baking, and freezing.
+
+Step one is figuring out what you will make together. Young children just enjoy spending time in the kitchen with you so the recipe need not be fancy. You might, for example, make a pesto blend and freeze it in ice cube trays (pop them out for easy use). Basil accentuates happiness, love and peace – all great energies that you can carry into the holiday season ahead.
+
+### Charged up Ice Pops
+
+And, since you’re freezing anyway, how about making fruit ice pops for your child (again you can use fruit that they like and that has symbolic value). Here are some drinkables that you might use for popsicles with their magical correspondences:
+
+*   Apple Juice: For overall health and making friends.
+*   Berry Blends: Happiness and family unity.
+*   Birch Beer: Alleviating sadness.
+*   Cherry Juice: Playfulness and laughter.
+*   Coconut Water: Adjusting to new circumstances and staying real.
+*   Cranberry Juice: Protection and wellness.
+*   Grape Juice: Fun, happy occasions and being recognized for efforts.
+*   Lemonade: Good luck and lunar energy.
+*   Orange Drink (or Juice): Love, creativity, imagination and joy.
+*   Pineapple Juice
+
+Feeling welcome, staying safe and solar energy
+
+No matter what you end up making together, have your child help you label the canned, frozen or baked goods with fun names that symbolize their magical themes like “joy jam,” “thankful tomatoes,” and “blessing beans.”
+
+## Clean-Up Parties
+
+Earth Day, as most pleasant days throughout the year, provides us with an opportunity to serve the planet. In Wicca and Paganism, reciprocity with nature is nothing less than essential, and that includes cleaning up human messes. Since children are always looking for a good excuse to go outside and play, you can encourage them to give part of their playtime to clean-up projects.
+
+For example, say walkers in your neighborhood often toss odd bits of trash on people’s lawns. Before heading to play with friends, your child could pick these up. For safety reasons show them what they SHOULD NOT touch, and also give them gloves, thereby avoiding some nasty germs. You can also show your child how to prepare recycling containers for pickup by the authorities. True, these are small efforts, but every little bit helps.
+
+Other ideas along these lines include organizing park clean-up days, pollution awareness days, and paper drives (this last effort can raise money for schools or ecological protection groups). Or, try holding a contest for neighborhood children to see who can come up with the most creative way of recycling something (break this up by age group). Many businesspeople are happy to contribute small prizes for these kinds of things. Better still, this gets the tribe of your community working and playing together for a greater good.
+
+## Feather Finding and Divination
+
+Magical practitioners often look to nature for omens and signs. Feather finding is another such activity perfectly suited to young children. If they randomly find a feather from a particular bird (if it’s identifiable), use the opportunity to teach them about that creature’s attributes, and any potential message it bears for that child. For example, say a child finds a white feather, blue feather, and a brown feather together in the backyard of a new home. These represent the gifts of peace, joy, and security.
+
+Alternatively, if a child has some pressing questions, he or she can voice that query to the winds, and then go for a walk. Whatever feathers the child finds along the way indicate an answer according to Native American tradition as follows:
+
+### Feather Interpretations
+
+*   Red: A bit of luck is coming your way.
+*   Orange: You’ll soon be having some great fun with friends.
+*   Yellow: Slow down a bit and be cautious in this situation.
+*   Green: A chance to grow or an exciting adventure awaits you.
+*   Blue: Peace and unity.
+*   Brown: Well-being, especially physical; security. Grounding.
+*   Black: A negative omen, possibly bad news coming.
+*   Black and White: Overcoming a problem or seeing both sides in a matter.
+*   Green and Black: Improved finances and reputation.
+*   Brown and White: Happiness.
+*   Gray and White: Your wish will come true.
+*   Blue, White, and Black: Making a new friend.
+*   Purple: Travel or a vacation.
+
+Wash the found feathers in warm water and freeze them (this kills germs). Afterwards these can be used in the child’s spells, as part of a children’s ritual, for smudging, or as decorative additions to walking sticks, power pouches, and medicine shields.
+
+## Gardening
+
+[**Magical gardening**](https://witchcraftandwitches.com/witches-garden/starting-goddess-garden/) is one of the best ways to get directly in touch with the Mother. Here, children not only learn about natural cycles, but can also begin discovering the metaphysical correspondences for many plants, and they can learn a little of why those associations developed, and how to use that information for manifesting personal goals.
+
+The daisy, for example, has strong solar aspects because it turns its face to follow the sun through the sky, and carrying a daisy is said to draw love to the bearer. So, if a child wants more energy (a solar characteristic), or if he or she hopes to meet more friends, he or she might choose to plant daisies in rich soil with an energized turquoise (for friendship). When the flowers are grown, the child can pick a few flowers, symbolically “gathering in” the magic created by his or her own handiwork.
+
+### Possible Magical Gardening Activities
+
+How about:
+
+*   Enacting Special rituals to bless the land (or soil) before adding seeds.*   Planting lavender flowers in gardens, window pots, and indoor planters to sow peace in the home.*   Adding carrots to a vegetable garden so that awareness and spiritual vision can likewise grow.*   Putting some garlic buds at the four elemental corners of the house to protect it.*   Harvesting a magical herb at summer solstice for greatest power.*   Blessing crystals like moss agate and adding them to the soil, energizing the land
+
+Really, the possibilities are endless.
+
+## Leaf Pressing and Divination
+
+For a good fall activity, take your child out to find several varicolored leaves (from as many different species as possible). Twelve is a good number that improves the randomness of this divination method. Take the chosen leaves inside and wax them by placing each leaf between two sheets of waxed paper (the wax side facing the leaf) and warming the paper with an iron on a low setting. Remove the leaf before it totally cools or it will stick.
+
+Next, have the child place the cooled leaves in a cloth bag, and then randomly draw out a leaf. The interpretation is indicated either by the leaf’s color(s) (you can use traditional correspondences or those given for feathers), or by the type of leaf as listed below. Note that these values are written for older children (over the age of eight), so if your child is younger, you may want to change the interpretations to something more appropriate and comprehensible.
+
+### Leaf Interpretations
+
+*   Apple: Improved health or relationships.
+*   Ash: Good luck.
+*   Aspen : Watch your words.
+*   Beech: Make a wish!
+*   Birch: A spirit is trying to get your attention.
+*   Cherry: An emphasis on learning.
+*   Elder or Elm: Be on the look-out for fairies!
+*   Hawthorn: Happiness and fortune will soon be yours, or a chance for a fresh start.
+*   Hazel: You will soon find a special
+    treasure.
+*   Holly: You will soon have an important dream.
+*   Juniper: The dark clouds are lifting, stay hopeful!
+*   Oak: Strength and long life.
+*   Poplar: Improved communications.
+*   Rose: Love or good friendship.
+*   Rowan and Walnut: Safety, especially from magic.
+*   Willow: Self-control or improved psychic insights.
+
+For greater durability you can laminate or decoupage the waxed leaves. HINT: if they are interested let your child assign their own meanings to each leaf.
+
+## Prayers
+
+Numerous circumstances give us the opportunity to bring more prayerfulness into our lives and those of our children. Bedtime and mealtime prayers are but two. In our fast-food world, the custom of mealtime prayer has become somewhat passé. Despite this trend, it is a tradition that a magical lifestyle can resurrect successfully.
+
+### Meal Time Prayers
+
+At a family dinner, each person can take a turn offering a prayer. This prayer should thank both the Creator and the creation for their gifts, and then add anything else for which the family is grateful or has a pressing need. In many Native American traditions, for example, the spirit of the animal being consumed is thanked for its sacrifice. Similarly, vegetarians can thank the plant spirits for their abundance. Children and adults alike should be encouraged to speak from the heart in truthfulness. You’ll be amazed at the insights that come from these moments.
+
+### Bed Time Prayer
+
+At bedtime, children need not kneel in prayer as is traditional in Christian settings. Instead, tell them to do whatever feels right: sing, dance, chant, or just talk. I truly believe that Spirit is far more inclined to heed heartfelt actions and words over rote litany any day.
+
+### Prayer Requests
+
+During prayer, many people (children and adults alike) remember to ask for blessings for their mom, dad, grandma, and the like but completely forget that they too are important and worthy of blessing. This is a valuable lesson for our youth, who often struggle with self-images and status quo issues. So, remind your children to not only give thanks and make requests for others in their prayers, but to also place petitions before the Sacred for themselves, and to talk to Spirit about the things they don’t necessarily want to share with anyone else. In a world where everything else changes quickly, the Divine remains an eternal stronghold to which our children can turn for foundations and support anytime.
+
+You can find some sample children’s prayers [**HERE**](https://witchcraftandwitches.com/magickal-kids/prayers-neo-pagan-children/).
+
+## Quality Time
+
+It’s hard to find the kind of time you might wish with your children. As a result our children often feel left out or bored, or worse yet, turn to the TV, computer and cellphone for companionship. Adults feel guilty but can’t get out of the work-a-day trap if they want to support the family. Thus, we come by the infamous phrase “quality time.”
+
+What exactly does quality time mean to a magical practitioner? It means living attentively and presently enough so we can give our children love, attention, and insights, whenever and wherever the opportunity strikes. How? Here are some simple illustrations that will hopefully inspire more creative ideas of your own:
+
+When everyone is doing chores together, sing songs, chant, or make a game out of it. For example, spray floor polish on a cloth and let the kid(s) skate over the wooden surface to clean it while they recite something like: *Within I shine, without I shine, soon good luck will be mine!* Change the chant to something personally significant for the child.
+
+*   When a child complains that he or she is having a bad day, suggest that he or she begins moving clockwise whenever possible. This turns negativity and encourages blessing because it follows the sun’s natural movements. Alternatively, suggest the child changes an item of clothing to change luck or puts on a piece of clothing whose color makes him or her feel better.
+*   When you pass an animal that’s been killed by a car, offer a prayer for the creature’s spirit, or ask the child to do it. Explain why if necessary.
+*   When you’re mowing the lawn, make a mandala pattern and explain it to the kids. They can then use this design as a racetrack; running generates energy for manifestation! If you don’t have a lawn, try this with your vacuum cleaner on a plush rug (spiral designs are the easiest in this case).
+*   When you call the kids in because you’re anticipating rain, explain what signs you used to predict it (like the leaves turning, birds singing differently, etc.).
+*   At bath time, suggest the children pick out one habit or problem they want to wash away, then make up a song or chant to help focus on that goal. When the water is drained, the negativity goes with it!
+*   At bedtime, encourage the children to use their imaginations to create stories they’d like to dream about (also put a dream catcher over the bed). This improves the child’s ability to visualize, and often produces spiritually significant dreams.
+*   When a child is studying spelling, try a little bibliomancy. Have your child think of a question then randomly open the dictionary and point to a word. See what kind of answer he or she gets, and have the child learn the word tool Likewise, when studying math, teach the child the metaphysical significance of numbers and try a little numerology with his or her birthdate.
+
+These kinds of activities change dramatically depending on the age of the child, your living environment, and personal circumstances. Nonetheless, almost all activities and situations hold the potential for a little magic if viewed with a creative eye. Better still, the more you add exercises and insights like these into your child’s life, the more natural it becomes. Eventually, you’ll find your child following your lead and coming up with ideas all on his or her own. In this manner, you also empower your children-empower them to carve out a spiritual path and vision that suits the person they’re becoming.
+
+## Sandcastle Wishing
+
+Many children love the water and will swim and play literally until they turn blue from the cold. Additionally, children seem memorized by the beach. So you can add a little magic to the day’s adventure by teaching about the significance of tides (which tie into the moon) and how to use them for wishing.
+
+### Tide Symbolism
+
+The Norse feel that the time of day when the tide arrives changes its energy for [**wishcraft**](https://witchcraftandwitches.com/spells/wishcraft-wishing-spells-101/). A morning tide is good for wishes pertaining to energy, new ideas, and attentive living. A day tide helps with growth, money, and connection. A midday tide brings providence and strength, and an evening tide creates energy for joy and realness. Night tides hold creativity and knowledge. Midnight tides help with healing wishes, and pre-morning tides are good for thoughtfulness and rest.
+
+To utilize just suggest that the child find a biodegradable symbol of his or her wish and bury it in the sand during the right tide. When the emblem gets washed out to sea (or lake) it carries the wish with it. Alternatively, the child can build a symbolic sandcastle for the tide to wash away, slowly dispersing the wish energy he or she places within!
+
+## Stone Messages
+
+During nature walks, a day in the park, or any other moments outdoors, children often find neat stones that they want to bring home as personal treasures. When this happens it’s the perfect time to discuss the energy housed by each stone, and its gift to us as a witness to much of human history. You can then examine the color or patterns on the stone with the child.
+
+Once the stone is home it can go on the child’s altar, be placed on a talking/walking stick, become part of a power pouch, get blessed and used as a portable amulet or charm, become part of a [**divination system**](https://witchcraftandwitches.com/magic-healing-crystals-metals-gemstones/making-a-magical-crystal-stone-oracle/) or even perhaps get woven into her or his personal [**dream catcher**](https://witchcraftandwitches.com/magickal-kids/making-a-magical-dream-catcher/).
+
+## Storytelling
+
+In Shamanic traditions, the ethics, values, beliefs, and customs of the tribe are often transmitted to children and outsiders through storytelling. In the tradition of the ancient bard, the shaman memorizes stories from long ago. Some of these stories speak of the spirits, others teach about nature, and still others preserve the tribe’s history. No matter the tale, however, the children hearing these stories find a sense of belonging and a heritage in the words that they will carry long into the future.
+
+### Creating a Story
+
+For your personal storytelling efforts, try making up a story with your child that symbolically deals with something going on in his or her life, or something about which you wish to teach him or her. For example, if your child has been having problems with bullies, you might start a story where someone is facing a fearsome foe, but overcomes the fear somehow. These cooperative tales are fun to try at family gatherings and camping trips too. Here your tribe can sit in a circle with each member contributing something to the creative process.
+
+### Folklore and Family Stories
+
+Alternatively, storytelling time can include tales that you favored as a child, old folk stories, or treasured family saga. Think about what you have on hand and try to find a tale that suits the occasion or mood. As you do, don’t forget that humor and “just for fun” stories are just as important to children as moralistic tales and histo-myths. They release the power of joyfulness into your child’s life. Besides, what’s really most important about storytelling isn’t the exact nature of the tale, it’s the time-the private time between you, your child, and the Sacred powers that you allow to pour through your words.
+
+## Talking Stick
+
+Talking sticks are great tools for any family discussion. The basic idea is that when a person has the stick they also have the “floor” and should not
+be interrupted until done. Then the stick moves on to the next person. Some folks add a timer to this when there are long-winded participants.
+
+### Making a Talking Stick
+
+Look for a fallen branch that you can hold comfortably in one hand. Sand down any rough spots then work with your child on decorations like tiny crystals, feathers etc. Once created the talking stick can have functions besides conversation:
+
+*   Calling the Quarters in a child’s ritual.
+*   Directing energy in a child’s spell.
+*   Signalling the need for a private talk.
+
+For the last function, tell your child that whenever he or she needs to talk to you about something, they should leave the staff in a special spot. This acts as a silent signal between the two of you, to which you can respond quickly. Sometimes symbols are easier than words for opening that discussion.
+
+## More Magical Activities for Children?
+
+There are certainly far more nature-inspired activities than those given here. Think back to your own childhood. What kinds of things did you enjoy doing outdoors? Did you weave flowers into caplets, wheat or corn into braids, or have leaf-raking parties? Believe it or not, your children will likely enjoy similar things, to which you can add a magical dimension. Look at each moment of living as an opportunity to teach basic spiritual concepts through recognition, joyfulness, thankfulness, and love.
+
+Adapted from Shaman in a 9-5 World by Patricia Telesco all Rights Reserved.
