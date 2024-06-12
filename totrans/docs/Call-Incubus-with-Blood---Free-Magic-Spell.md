@@ -1,0 +1,78 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:51:38
+-->
+
+# Call Incubus with Blood - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/love_spells/erotic_spells/13251/page.html#0001-01-01](https://www.spellsofmagic.com/spells/love_spells/erotic_spells/13251/page.html#0001-01-01)
+
+ PLEASE READ!!!
+
+essential means its absolutely necessary and extremely important. recommend is a offering suggestions about the best course of action. optional is available to be chosen by you but not obligatory.
+
+wikipedia: In folklore traced back to medieval legend, a succubus (plural succubi) is a female demon or supernatural entity that appears in dreams, who takes the form of a human woman in order to seduce men, usually through sexual intercourse. The male counterpart is the incubus. Religious traditions hold that repeated intercourse with a succubus may result in the deterioration of health or even death.
+
+wikipedia: An incubus (nominal form constructed from the Latin verb, incubo, incubare, or to lie upon) is a demon in male form who, according to a number of mythological and legendary traditions, lies upon sleepers, especially women, in order to have sexual intercourse with them. Its female counterpart is the succubus. An incubus may pursue sexual relations with a woman in order to father a child, as in the legend of Merlin. Religious tradition holds that repeated intercourse with an incubus or succubus may result in the deterioration of health, or even death.
+
+Personal experience: I had succubus appeared in my dreams many time since 2003\. This succubus took the form of a human woman in order to have sexual intercourse, In a simple word I had sexual intercourse with demonic being lol I am happy and in a good health. Im not religious but in my opinion succubus are part of the jinn group, Djinn or Jinn are being of fire (pure fire or smokeless fire).
+
+Requirements:
+1\. You must be 18 or over to do the ritual.
+2\. If under 18 years of age you must have your parents or guardians permission to do this ritual.
+3\. Willing to have sexual intercourse with supernatural demonic entity.
+4\. You have little or more experience in the following; meditation, void meditation and lucid dreaming.
+5\. If you are beginner like a new newbie than I highly recommend that you don't do this ritual.
+6\. By summoning a supernatural demonic entity like an succubus or incubus means that they will have sexual intercourse with you whenever they want (like it or not) remember succubus and incubus are demonic sex demon.
+
+This ritual works at any moon phase but best at full moon and time 12-3am.
+
+Step #1:
+
+If you have any little kids sleeping nearby then DO NOT DO THIS IN YOUR APPARTMENT!
+
+Step #2:
+
+Light the candle in the dark quiet room. sit in comfortable position, clear your mind and start formulating what you want in your mind.
+
+Step #3:
+
+You have to write a letter to Lillith, do not command her or tell her to obey you and please don't be stupid like saying I order you and etc... Always show respect, respect, respect an example ... Great Lillith, I seek your blessing, I ask a favour of you if it please you, etc...
+
+Step #4:
+
+Right your thoughts to paper, there is no set limit on how much you should write, request your hearts desire and again adressing Lillith and thanking her for considering your request.
+
+Step #5:
+
+End the letter with the following sentance: "All these words are my deepest desire, I mean them truthfully and swear to them in name and blood."
+
+Step #6:
+
+Sign the paper in your full birth name and then prick your finger with the needle and let one drop of blood soak into the paper and remember intent is everything.
+
+Step #7:
+
+After you have finished with your letter, lay it infront of the candle and begin to meditate. Take your time and concentrate on everything you wrote. Focus your desire on the letter. Once you feel you are ready then say the following; "Lillith, please receive this offering. I give it truthfull and willingly."
+
+Step #8:
+
+Burn the paper without folding it. While it is burning say; "May the light of this candle burn brightly and guide your daughter or son to me".
+
+Step #9:
+
+IMPORTANT: Make sure you leave the candle burning for at least another 30 minutes. Relax yourself and clear your mind.
+
+Step #10:
+
+Things to expect: You may feel small gusts of cold air brush your cheeks. A tingling on your skin that feels as if your hairs have been gently touched and at some stage your arrousal will become so strong that you will loose concentration. If that is the case then say the following; "I thank you daughter or son of Lillith for coming to me. I welcome you into my life and into my dreams and ask all other spirits, demons and entities who have been attracted to my ritual to begone and leave in peace."
+
+Step #11:
+
+Blow out the candle and then go to bed, If you felt something during the ritual you will feel it starting up again. Relax, lay on your back and let it happen. How far you take it depends on how far you can relax, she/he can touch you and interact with you.
+
+Step #12:
+
+Do not push it. If you feel that you cannot experience more then just her/him touching you then accept it and anticipate your next encounter.
+
+Peace Rofiqul, Bless it be...
