@@ -1,0 +1,66 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:35:44
+-->
+
+# Candle Magic - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/health_spells/cure_spells/2182/page.html#0001-01-01](https://www.spellsofmagic.com/spells/health_spells/cure_spells/2182/page.html#0001-01-01)
+
+ From above to below Flows the pattern of perfection From desire to manifestation Flows the pattern of Magick From within to without Flows the pattern of my will Candle magick is probably one of the simplest forms of magick to get started with. You need nothing but the candle and fire to light it with. Candle magick can also be seen to be complete within itself, as the body of the candle is made up from the elements of Earth, Air and Water. To complete you need fire and spirit. Fire is easy, and Spirit can be represented by the wick of the candle, as the wick is where the potential of the candle lies and will be unfolded with. With the candle lit, the flame of your intent will burn.
+
+  Candle Magic has been used for centuries for magick and ritual. We light candles at holidays, a practice that takes place in many different religions, cultures and traditions. Candles invoke the divine, they create a sense of ceremony and they are facinating to look at. Candles can be purchased anywhere, by anyone without anyone blinking an eye or suspecting magick and witchcraft! Through their ability to help you to focus on your wishes they make your heart's desire come true. Try it next time you want to make something happen in your life! Below is a few simple guidelines for using candles in magick! Unwittingly you probably performed your first act of Candle Magick when you where very young on your birthday, blowing out the candles on your cake and making a wish! This tradition is based on the three principals of magick; being concentration, will power and visualization. You have to concentrate to blow the candles out, wish and see your dream coming true - absolute magick!
+
+  Important pointers on choosing a candle:
+
+Choose a plain candle, of uniform shape. Having unusual or large candles can be distracting and is therefore not suitable for magickal use. Candles used for magick should always be Virgin (unused) at the start of the ritual. Using secondhand candles or other materials in magick can have disastrous effects as they might have picked up vibrations from previous use, even if it was just on a dinner table! It is a very good idea to make your own candles if they are for magickal use. It will increase the magickal potency of the candle many times. It is very easy to make your own candles, simply heat the wax until liquid and pour it into a mould which is treaded with a wick. The wax should now be left to cool, after which the mould can be removed. Oils and colours can be added to the Wax for extra effects. Charge your candle before using it in ritual. This can be done by annointing it with oils associated with the ritual or magick you intend on performing, or by simply touching it and charging it with your own energy. Whilst charging the candle, visualixe the North and South Poles - rub the oil into the candle starting at either the North or South end and always brush in the same direction. The oils used in the annointing of your candle should where possible always be natural fragrances. Try to colour the candles according the the colour associations below.
+
+  Astrological Associations for Candle Magick
+
+**Aries** -Red
+
+**Taurus**- Green
+
+**Gemini** -Yellow
+
+**Cancer**- Silver
+
+**Leo** -Orange
+
+**Virgo** -Yellow
+
+**Libra** -Pink
+
+**Scorpio**- Red
+
+**Sagitarius** -Purple
+
+**Capricorn** -Black
+
+**Aquarius**- Any Colour
+
+**Pisces** -Mauve
+
+An absent coven member can be represented by a candle representing their sunsign, or if you are doing a spell for someone you can represent that person with a candle representing their sunsign.
+
+Colours for magickal purposes:
+
+**White** - Can be used for any purpose
+
+**Black** - Attributed to Saturn. Saturn is used for retribution and when we have been wronged - revenge. Be careful, you may feel that you need to punish someone at once with a Hex and make them suffer! That is real power yeah? Wrong! Remember the laws of return, and avoid this temptation! This is most probably why Saturn is the teacher. Black candles is used for Discord, protection from retribution, power, strengh, banishing rituals and protection.
+
+**Blue** - Peace and Harmony, protection, healing, curing fevers, re-uniting friendships, house blessings, breaking bad habits, overcoming addiction, clearing atmosphere where there are arguments or trauma.
+
+**Brown** - Used for the Physical Planes, as a combination of the colours Green and Red, Mars and Venus blended together as one. It is often used to seperate, and also for grounding and stabilizing. Brown is ruled by Pluto, the Lord of the Outer Spaces and The Dead. In Candle Magick, Brown is used for spells involving: Concentration, balance, ESP, intuition, study, justice and seperation.
+
+**Gold or light Yellow** - This colour attracts Cosmic influences and is beneficial used in rituals intended to bring fast luck and money. It is also used in rituals needing solar energy. General uses in Candle Magick would include: Fortune Understanding Divination Financial gain Higher influences.
+
+**Green Venus**.- Venus rules on an earthy level, and green can attract all the things ruled by Venus. Treasure, antiques, worldly possesions. Green is often used in conjunction with orange, Mercury candle - used to clear obstacles in the way of revealing hidden treasure. In Candle Magick green is used for fertility, good fortune, generosity, money, wealth, success, renewal, marriage, healing cancer and helping with female problems.
+
+**Indigo** - This is used in meditation and ritual which demands the energy of Saturn, such as deep meditation, balancing Karma, stopping gossip and astral projection. Magenta - This has a very high vibrational frequency and tends to work very fast. It is often used with other candles. General uses involve - quick changes, spirtitual healing and exorcism.
+
+**Orange Communication** - Orange is ruled by Mercury, the divine messenger of the Gods. Orange works well when two people wish to have their telepathic senses opened together. Remember that Mercury is a trickster and when using this to "invade" another person, the trick could be on you! This is excellent for job hunting, success, encouragement, adaptability, stimulation, attraction, sudden change, control, power to draw the good things in life and to change luck.
+
+**Pink** - Pink is the romantic colour, indicating love, affection, romance, spiritual awakening, healing of spirits and togetherness.
+
+**Purple** - Used to gain honor, respect and recognition of others
