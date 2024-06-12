@@ -1,0 +1,79 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 20:04:25
+-->
+
+# Datura Stramonium- Discovering An Original Witches Weed
+
+> 来源：[https://wiccanow.com/datura-stramonium-a-witches-weed/#0001-01-01](https://wiccanow.com/datura-stramonium-a-witches-weed/#0001-01-01)
+
+> ” “The Aztecs had great superstitions regarding [datura and peyote] . . . which they venerate as though divine. For in drinking these herbs they consult them like oracles. [They revere] these seeds . . . as if they were God.”¹⁰²
+> 
+> The Witches’ Ointment: The Secret History of Psychedelic Magic
+> By Thomas Hatsis
+
+**Datura is commonly called Thorn apple or Jimson Weeds and grows almost everywhere on the planet except the arctic. It has beautiful trumpet-shaped flowers that open at irregular times during the evening. The fruits are covered in spikes and oval-shaped. If bruised, any part of the plant will produce a foul odor. Datura is extremely toxic when ingested and can cause severe hallucinations and even death.**
+
+The content provided on this is website is for informational purposes only and DOES NOT CONSTITUTE THE PROVIDING OF MEDICAL ADVICE and is not intended to be a substitute for independent professional medical judgment, advice, diagnosis, or treatment.
+
+Always seek the advice of your physician or other qualified health providers with any questions or concerns you may have regarding your health.
+
+*   **Genus: ***Datura*
+*   **Species: ***stramonium *
+*   **Family: **Solanaceae 
+*   **Common Names: **Thorn Apple. Jimson Weed. 
+*   **Annual Active Constituents: **Hyoscyamine. Atropine. Scopolamine.
+
+Botanical experts have different theories on whether Datura stramonium was known in pre-colonial Europe. According to Thomas Hatsis, three species of Datura were known to have existed in the old world prior to colonial contact. Hatsis further states that one pre-Christain name for the plant is the Lithuanian *dievažolynis, *meaning “God’s herb”.(1)
+
+Datura itself forms a genus of some 20 species of the nightshade family *Solanaceae*. The plants of the Solanaceae family have been used as hallucinogenics in both hemispheres of the planet. A Datura drug is generally made by dropping the pulverized seeds into a fermented drink or by steeping the leaves and twigs in water.
+
+The effects of ingesting Datura are characterized by initial effects that are often so violet that physical restrain must be imposed. Thereafter hallucinations and drowsiness can be expected. Natural philosophers like Giambattista Della Porta declared that datura “will make one mad, and present strange visions, both pleasant and horrible.” Recreational consumption has also lead to fatal tragedies, for example in the USA in 1994, two boys, aged sixteen and seventeen died after consuming a drink brewed from the roots of Datura.
+
+## Datura – Medicinal Uses
+
+Despite being poisonous, different parts of the plant are commonly used in Ayurveda to cure skin ailments, impotency, glaucoma, heart disorders, urinary problems, and asthma. Datura is also known to have been used as an anesthetic during childbirth and surgery since ancient times. A poultice made from the crushed seeds and roots and applied to the joints is also thought to relieve the pain of arthritis and rheumatism.
+
+## Datura – Ritualistic Hallocinogen
+
+Aboriginal peoples from Columbia to Chile value Datura as a ritualistic hallucinogen and medicine. The plant was extremely sacred to the Aztec people. According to Richard Evans Schultes “datura has been used traditionally during initiation rituals, to induce dreams, communicate with the ancestors and gain occult powers and predict the future.”(2). Schultes further writes that “some Indians of the Andes of southern Columbia cultivate a number of clones or high ‘atrophied’ varieties of Datura. The medicine men from these regions maintain that these plants have a differing potency from the usual *Datura’s*“. This further illustrates that Datura inhabits a culturally significant and longstanding place within traditional folk medicine.
+
+Another example of Datura being used ritualistically can be found in the traditions of the Algonquin Indians of Eastern North America. Young men of the tribe would be taken to a secluded area to drink a mixture called wysoccan (made primarily from Datura). This powerful hallucinogen was intended to remove memories of childhood and was administered over a period of 20 days. Surviving this ordeal was understood as a rite of passage, marking the transition from childhood to adulthood.
+
+## How To Harness Datura’s Magickal Properties
+
+Datura is used to break spells by sprinkling it around the home. Some sources suggest a cure for insomnia by placing datura leaves into a shoe and setting the shoe underneath the bed with the toes pointing towards the nearest wall. Work with the dried leaves to remove negative energies and to banish fear. Invoke the spirit of the plant to guide you in the dream world.
+
+The Vajramahabhairava Tantra, a 10th century AD Indian Buddhist tantric ritual text written in Sanskrit of which only a Tibetan translation is still extant outlines a number of magic spells that involve the use of Datura
+
+## Datura – **Religious Association**
+
+The leaves and fruits are considered holy within the Hindu religion and Datura plays an important role within Hindu mythology. The Datura plant is believed to have appeared from the chest of Lord Shiva and both the flowers and the leaves are offered to Shiva. Although Datura is poisonous, Shiva accepts them because he can tolerate them. According to legend, Shiva took a toxic poison named “Halahal” which came out of the ocean when it was churned by gods and devils. This story of Hindu mythology says that Shiva took that poison to save the world and kept it in his throat. It made his throat blue. After this, the Datura plant appeared from Shiva’s chest. Therefore it is believed that offering Datura to Shiva has a symbolic meaning and will help to remove poison, envy and rivalery.
+
+## Datura Correspondence According to Cunningham’s Encyclopedia of Magical Herbs
+
+| **Folk Names** | evil’s Apple, Ghost Flower, Jimsonweed, Love-Will, Mad Apple, Madherb, Manicon, Stinkweed, Sorcerer’s Herb, Thornapple, Toloache, Witches’ Thimble, Yerba del Diablo (Spanish: Herb of the Devil) |
+|  **Gender** | Feminine |
+| **Planet** | Saturn |
+| **Element** | Water |
+| **Powers** | Hex-Breaking, Sleep, Protection |
+
+## Datura Poisoning – What To Do
+
+If you or anyone you know is suffering from the adverse effects of Datura, you must immediately contact your local emergency hospital.  Fatalities due to Datura species poisoning are rare, but adverse effects are common 
+
+As detailed by the paper “Acute poisoning due to ingestion of Datura stramonium”, treatment for Datura poisoning consists of “gastric decontamination with activated charcoal administered by mouth or tube, sedation with benzodiazepines to control agitation, and the hyperpyrexia control (fluids administration and internal and external cooling methods). Gastric emptying and decontamination are necessary managing tools if they are initiated early. In our case, the ingestion was done 2 hours before admission, and the early gastric emptying and decontamination, with activated charcoal through a gastric tube proved to be safe and efficient, as long as the airway was already secured, and the maneuver was applied before the toxins were totally absorbed. Decreased gastrointestinal motility may have raised the efficacy of the activated charcoal”.
+
+### References:
+
+*(1) The Witches’ Ointment: The Secret History of Psychedelic MagicBy Thomas Hatsis*
+
+*(2) Hallucinogenic Plants – A Golden Guide by Richard Evans Schultes*
+
+[*Acute poisoning due to ingestion of Datura stramonium – a case report*](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5555431/)
+
+*The Complete Illustrated Encyclopedia of Magical Plants, a Practical Guide to Creating Healing, Protection, And Prosperity Using Plants, Herbs, And Flowers (2013) by Raluca Dragomir*
+
+## Shop Our Hand-Illustrated Witches Grimoire
+
+Post Views: 1,390

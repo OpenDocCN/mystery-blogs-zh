@@ -1,0 +1,280 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 20:04:20
+-->
+
+# 26 Unique Witchcraft Symbols To Boost Your Magick
+
+> 来源：[https://wiccanow.com/witchcraft-symbols/#0001-01-01](https://wiccanow.com/witchcraft-symbols/#0001-01-01)
+
+Hi, my loves and welcome to WiccaNow. Today I want to share my guide to 26 unique witchcraft symbols that you might come across during your magickal practice. Symbols are something that we’ve touched on before with these posts about [protection symbols](https://wiccanow.com/9-protection-symbols/), another one about [Wiccan symbols](https://wiccanow.com/all-about-wiccan-symbols/) and also one explaining how [sigil magick works](https://wiccanow.com/sigil-magic-learn-about-the-secret-magic-of-symbols/).
+
+While you definitely don’t have to work with symbols (remember how we’re always stressing that every practice is individual and there are no rules?) it’s good to have some basic knowledge of some of the symbols you might come across in your magickal life. Below is my guide to 26 common witchcraft symbols. This guide is in no particular order, so don’t think that the first symbol on the list holds any more importance than the last!
+
+## 26 Magickal Witchcraft Symbols
+
+When choosing which symbols you want to work with, pick ones that speak to you. Always be aware of the modern meanings of a symbol, because they might not always mean what you think they mean. I’ve added a couple of symbols here which are common within the witchcraft community yet I would NEVER use them personally.
+
+The Solar Cross, for example, is an ancient symbol which has been used for thousands of years yet it’s been perverted into a symbol for white supremacy in recent times. Even though this is an ancient protection symbol which didn’t always mean white pride, these days that’s the main connotation for it so I refuse to use it.
+
+All I want to say with this is that sometimes things take on meanings that weren’t originally ascribed to them. It’s good to be aware of those meanings before you use those particular symbols so you don’t end up in a situation you would rather avoid.
+
+### Witchcraft Symbol #1 Earth Element
+
+The earth symbol is one of the 4 elemental symbols. Each of the elements also corresponds with a direction. Earth corresponds with the southern direction and is used during rituals or spells relating to motherhood, growth, life and death, nature and the divine feminine. It can also be used for money and fertility magick. 
+
+**Uses in Magick** – Money, abundance, fertility, personal growth
+
+**Correspondences** – Green, brown and feminine energies
+
+### Witchcraft Symbol #2 Fire Element
+
+The fire element symbolises strong masculine energies and is connected with strength of character and will. It symbolises new beginnings and purification. The fire element represents the southern direction.
+
+**Uses in Magick** – Transformation, divination, purification
+
+**Correspondences** – White, red and masculine energies
+
+### Witchcraft Symbol #3 Air Element 
+
+The 4 elements play an important role in witchcraft and Wicca. The air element symbol is often used in rituals or spells to do with wisdom and communication., The air element is traditionally used to represent east. It could be argued that this symbol also represents life itself as it’s been known to symbolise breath, and without breath, there is no life. 
+
+**Uses in Magick** – wisdom, communication, intuition and the power of the mind
+
+**Correspondences** – Yellow, white and masculine energies
+
+### Witchcraft Symbol #4 Water Element
+
+The water element is representative of the western direction and is strongly associated with feminine energies. As with air, it’s sometimes thought to represent life itself because without water we would all cease to exist very quickly. Water is associated with the Goddess and can be used to concrete tools before ritual magick or spellwork. 
+
+**Uses in Magick** – Purification, fertility, healing, divination, love, emotional well-being and releasing negative energies. 
+
+**Correspondences** – Blue, grey and female energies
+
+### Witchcraft Symbol #5 Ankh
+
+This ancient Egyptian symbol represents eternal life with some people believing it represents the key to life. It symbolises the rising sun along with the balance of female and male energies. The Ankh is sometimes thought to be a phallic symbol due to its shape. It’s a protection symbol and can be used to mark the borders of sacred spaces.
+
+**Uses in Magick** – Protection, longevity, warding away malevolent energies 
+
+**Correspondences** – Gold, equal energies between the genders or masculine energies. 
+
+### Witchcraft Symbol #6 Circle
+
+The circle is an ancient symbol representing wholeness and completion. It’s thought of as a symbol for perfection, infinity and eternity. It also represents the Self as well as the cycles of the natural world. The circle is also an embodiment of compassion and manifestation. 
+
+**Uses in Magick** – Transformation, longevity, protection, self-development and anything to do with the natural cycles of the earth.
+
+**Correspondences** – The Divine Spirit, wholeness, infinity and eternity
+
+### Witchcraft Symbol #7 Celtic Shield Knot
+
+This is an ancient protection symbol which has many variations from relatively simple to extremely complicated. The simplest form was present in Mesopotamia and was a square with a loop at each corner. The Celtic Shield Knot is thought to symbolise the 4 elements.
+
+For those interested in following a Celtic based path, this is a common [Celtic tattoo](https://wiccanow.com/celtic-wicca-myths-and-secrets-explained/#Celtic_Wiccan_Tattoos_%E2%80%93_5_Celtic_Wiccan_Tattoo_Ideas) or jewellery form. This symbol is most commonly used to ward off negativity and to provide protection. 
+
+**Uses in Magick** – Protection
+
+**Correspondences** – Fire, water, earth and air
+
+### Witchcraft Symbol #8 Eye of Horus
+
+This is also occasionally known as “wedjat” and is a representation of the Egyption God Horus. It’s thought that he injured his eye, and then had it restored to him so this symbol can represent healing powers and transformation. 
+
+This symbol is most often used for protection and depending on the orientation of the eye can also represent the Sun God Ra or the God of Wisdom and Magick Thoth. The eye is a common symbol throughout many cultures, and it’s thought to protect people from malevolent intentions or curses. This is an ancient symbol with some evidence that it might have been used 5,000 years ago to protect the wearer from negative thoughts. 
+
+**Uses in Magick** – Protection from negative energies, malevolent forces, curses, hexes, healing, transformation and redemption. 
+
+**Correspondences** – When shown as the right eye it corresponds to the power of the sun and the God Ra (Udjat) and when shown as the left eye it corresponds to the Eye of Horus (Wedjat) or Thoth, the god of Wisdom and Magick. 
+
+### Witchcraft Symbol #9 All-Seeing Eye
+
+This symbol, an eye surrounded by rays of the sun, is a powerful symbol which invokes the Goddess’s protection. This symbol is also called the “Eye of Providence” and is so well known that it even appears on the US$1 bill. It represents the all-seeing eye of the Goddess (or god) and provides the person using this symbol with her protection. 
+
+**Uses in Magick** – Protection
+
+**Correspondences** – The Goddess or the God
+
+### Witchcraft Symbol #10 Hecate’s Wheel
+
+This is a traditional Wiccan symbol and is most popular among the female-led forms of Wicca (such as [Dianic Wiccans](https://wiccanow.com/what-type-of-witch-are-you-19-types-revealed/#Type_of_Witch_7_Dianic_Witch)). It represents the 3 aspects of the Triple Goddess, namely the Maiden, the Mother and the Crone. Hecate is the Goddess of magick and sorcery but before she became associated with this she was the Goddess of Crossroads. The three parts of the maze represent the 3 stages of womanhood and the crossroads that every woman goes through to enter these 3 stages of life along with the power and knowledge she gains from each stage. This maze is also called the “Stropholos of Hecate” or “Hecates Wheel”.
+
+**Uses in Magick** – Transformation, change, female empowerment and knowledge
+
+**Correspondences** – The Triple Goddess, Hecate
+
+### Witchcraft Symbol #11 The Horned God
+
+This is a very common symbol which is often used in Wiccan practices. It is a representation of the duality of the Horned God and the strength of masculine energies. Female-led practices have changed this meaning and use it to represent the “Horn Moon” (or “blessing moon”) which takes place in July. 
+
+**Uses in Magick** – Fertility, virility, anything which asks for both genders to be represented (when used in conjunction with a female symbol), sexuality, animals and the life cycle. 
+
+**Correspondences** – The Horned God 
+
+### Witchcraft Symbol #12 The Triple Moon
+
+This is another symbol which is very commonly associated with Wicca. It represents the waxing, full and waning moon and is the symbol of the [Triple Goddess](https://wiccanow.com/who-is-a-wiccan-god-your-guide-to-wiccan-deities/#The_Triple_Goddess). It represents the 3 phases of womanhood and the 3 aspects of the Triple Goddess namely the Maiden, the Mother and the Crone. 
+
+**Uses in Magick** – Moon magick, the divine feminine, female sexuality
+
+**Correspondence** – The Triple Goddess, the Moon Phases
+
+### Witchcraft Symbol #13 Pentacle
+
+The pentacle is a powerful protection symbol that is commonly associated with Wicca and witchcraft. The pentacle is actually a combination of 2 symbols, namely the pentagram (a 5-pointed star) and the circle. The pentacle represents the wholeness of the self and the natural world. The 5 points on the pentagram represent the 4 elements (fire, water, earth and air) and the top point of the star represents either the self or the divine spirit. 
+
+There is a theory that the pentacle originated in Greece where it was associated with the earth Goddess Ceres. Apples were sacred to her and when cut in ½ crossways there is a 5 pointed star inside. Due to this, some people call the 5 pointed star the “star of wisdom” and associate apples with knowledge and learning. 
+
+Some people associate the pentagram with the Wiccan Deities. The lower two points represent the 2 aspects of the Horned God and the 3 top points represent the aspects of the Triple Goddess. Enclosing this symbol in a circle represents the infinite energy created when all energies are equal i.e. the Divine Spirit. 
+
+**Uses in Magick** – Protection
+
+**Correspondences** – The top point represents the Self or the Divine Spirit and is typically associated with the colour purple or silver. The top right point is associated with air, the colour white or yellow and creativity and knowledge. The lower right point is associated with fire, the colour red and passion and courage. The lower left is associated with earth, the colours brown and green and physical strength and stability. The top left is associated with water, blue and intuition and emotions. Note that the positions of the elements on the star tend to change, with some putting air on the left and water on the right. 
+
+### Witchcraft Symbol #14 Triskele
+
+The Triskele, also known as the triple spiral or a triskelion, is an ancient Celtic symbol which has been found in many other cultures throughout history. The name has Greek origins and means “three-legged”. It’s a common symbol associated with Sicily and is thought to represent the shape of the Island. It also appears as the emblem of the Isle of Man. 
+
+There is a lot of debate about what this symbol actually means, but there are a lot of common themes in these debates. It’s thought to be a representation life, death and re-birth as well as being linked to land, sea and sky. It can mean spirit, mind and body and it’s also associated with pregnancy and the 3 trimesters and also with a family unit of father, mother and child. It might also represent the past, present and future or creation, preservation and destruction. 
+
+Because this symbol is so prevalent in ancient cultures there is a lot of interest in what it’s what meant to represent. Some scholars believe that it depicts motion, more importantly, forward motion in order to reach a moment of understanding. 
+
+I believe that the meaning of this symbol can be whatever you need it to be in the parameters mentioned above. It’s a sign of 3 distinctly different but inter-linked concepts where one cannot exist without the others but all are in a constant forward movement. 
+
+**Uses in Magick** – Nature magick, self-development, spiritual knowledge and reincarnation
+
+**Correspondences** – The Celtic God Manannan mac Lir
+
+### Witchcraft Symbol #15 Triquetra
+
+This symbol is similar to the triskele however some people believe that it represents the Triple Goddess and the divine feminine. In Christianity, this symbol is meant to represent the holy trinity of Father, Son and the Holy Ghost and in Celtic based religions it represents the three realms of land, sea and sky or the body, mind and the soul. 
+
+It’s often used as a protective symbol because the endless nature of the knot implies that it can’t be broken. It’s also thought to strengthen the user’s connection to the Divine Spirit. 
+
+**Uses in Magick** – Protection, connecting to the divine feminine, nature magick
+
+**Correspondences** – The Norse god Odin, the Triple Goddess, the power of 3
+
+### Witchcraft Symbol #16 Yin Yang
+
+This is a symbol which doesn’t appear all that often in Wicca or witchcraft but is interesting to take note of non the less. It’s commonly seen in Eastern cultures and is an extremely well-recognised symbol. It represents balance, harmony and connection. In Buddhism, this symbol represents the cycle of rebirth and the concept of nirvana. Interestingly this symbol has been found on shields used by Roman soldiers and researchers are yet to find a link between these images and the symbol used in Eastern religions.
+
+The equal black and white portions of the symbol work in harmony with each other and the small dot of the opposing colour in the middle of the black and white portions represent the idea that both sides need each other in order to find balance. 
+
+**Uses in Magick** – Balance, harmony, spiritual growth, the power that exists in opposites
+
+**Correspondences** – this is a symbol often found in Buddhism and Taoism. 
+
+### Witchcraft Symbol #17 The Solar Cross
+
+This is a very old protection symbol which is also known as the sun cross. It can represent the life-giving energy of the sun and the 4 seasons or the 4 elements. This symbol has been dated back to the neolithic stone age where it appeared in cave paintings. It is used as a protection symbol, to invoke the sun god and to represent balance and infinity. 
+
+Unfortunately, the Solar Cross has been adopted by many far-right extremist groups and [has come to represent white nationalism and supremacy, neo-nazism and white pride](https://www.adl.org/education/references/hate-symbols/celtic-cross). The symbol has been banned if it’s being used to promote racism. 
+
+Because of these associations, take great care if you want to use this symbol as it could very well be misconstrued as a political statement rather than a protective witchcraft symbol. I tend to stay away from using it because I want absolutely nothing to do with something associated with values and ideas that I find absolutely abhorrent. It’s really a huge shame that this ancient symbol has been perverted in such a way. 
+
+**Uses in Magick** – Sun magick, elemental magick, protection
+
+**Correspondences** – The 4 elements and the 4 seasons, the Sun
+
+### Witchcraft Symbol #18 The Sun Wheel
+
+This one is similar to the Solar Cross and carries the same implications when used politically. The [mass shooter in Christchurch, New Zealand,](https://en.wikipedia.org/wiki/Christchurch_mosque_shootings) included a version of this symbol in his manifesto. I advise extreme caution when using this symbol as it could easily be misconstrued.
+
+The Sun Wheel, however, has been around since pre-Christian European culture. It used to represent the [wheel of the year](https://wiccanow.com/the-wiccan-wheel-of-the-year-living-the-magical-life/) and the 8 sabbats associated with it along with the sun. It was a powerful symbol because the sun has long been revered as extremely powerful and magickal. The Greeks were so cautious when worshipping the Sun Gods that they refused to use wine as an offering. They were worried that a deity with so much power might cause too much harm if intoxicated so they provided the deities with honey instead.
+
+**Uses in Magick** – Sun magick, Litha, Yule, the 4 elements or season
+
+**Correspondences** – The Sun Gods, the wheel of the year
+
+### Witchcraft Symbol #19 Seax Wica
+
+This is a symbol which was created by [Raymond Buckland](https://en.wikipedia.org/wiki/Raymond_Buckland) to represent the moon, the sun and the 8 sabbats. This symbol is one of the few that isn’t based on ancient symbols or imagery and instead was crafted specially to represent this inclusive form of Wicca in the 1970s. 
+
+Raymond Buckland created Seax Wica to be more inclusive and to give covens the right to govern themselves with their own rules rather than ones previously set out for them. Unlike many other forms of Wicca, Seax Wica were allowed to invite non-coven members to attend rituals and ceremonies as long as no member of the coven was opposed. 
+
+**Use in Magick** – Representative of Seax Wica
+
+**Correspondences** – Seax Wica
+
+### Witchcraft Symbol #20 Mjolnir 
+
+This symbol is a representation of Thor’s Hammer and is often used by those who follow a path based around the Norse Gods. This is a symbol which has been around for a long time in Scandinavian countries and is still sometimes used for weddings, funerals and baptisms although the shape changes from region to region. 
+
+**Uses in Magick** – Protection, defence, power, storm magick, strength and loyalty
+
+**Correspondences** – Thor, lightning and thunder 
+
+### Witchcraft Symbol #21 Triple Horn of Odin
+
+Another symbol which originates with the Norse Gods, this is also sometimes called the Horn Triskelion or the Triple-horned Triskele. This symbol is a direct reference to a [Norse myth where Odin drank the magickal mead of poetry](https://en.wikipedia.org/wiki/Mead_of_poetry) out of a magickal drinking horn. This ancient symbol can be traced all the way back to the Neolithic era and is connected to the magickal number 3\. The symbol represents poetic inspiration and the pursuit of wisdom. 
+
+**Uses in Magick** – Wisdom, cleverness, communication, can be used to represent both female and male energies on an altar
+
+**Correspondences** – Odin, creativity and knowledge
+
+### Witchcraft Symbol #22 The Septogram
+
+This 7 pointed star references another powerful magickal number. It’s connected to the 7 chakras and is associated with heaven. It’s also known as the faery star or the heptagram.
+
+The number 7 is a magickal number as it corresponds to the days of the week, the 7 colours present in white light, 7 notes in a musical scale and 7 planets in our solar system which could be seen by the naked eye by ancient people.
+
+The Septogram represents balance and also references the 7 directions used within witchcraft and Wicca of North, South, East, West, Above, Below and Within. The 4 elements can represent the 4 directions, the Divine Spirit represents Above, the Body represents Below and the Soul of idea of Self represents Within. 
+
+This symbol is used in quite a lot of different religions including Judeo-Christianity where it represents the 7 days of creation and the completion of the universe. 
+
+**Uses in Magick** – Protection, harmony, planetary magick, balance
+
+**Correspondences** – Mercury, Venus, Mars, Jupiter, Saturn, the Sun, the Moon
+
+### Witchcraft Symbol #23 The Key
+
+The key is a symbol which is often used in Wicca and Witchcraft to represent the opening of doors and new opportunities. It symbolises the unlimited potential we all possess and the idea of opening oneself to new ideas in order to manifest our desires. A key can represents freedom and can also be used to permanently close doors we no longer want to access within ourselves. 
+
+**Uses in Magick** – Luck, prosperity, manifestation, freedom and banishment
+
+**Correspondences** – Life, abundance, freedom
+
+### Witchcraft Symbol #24 The Hexagram
+
+This 6 sided star is also known as the Hexagram of Solomon and researchers believe that it was worn by [King Solomon](https://www.ancient.eu/solomon/) as a signet ring. It’s believed to have imbued King Solomon with the power to communicate with animals and to command faeries, djinn and demons. Ancient coins from 1290AD have been imprinted with this symbol. It was used as a protective symbol and represents the authority of the Gods during the middle ages. 
+
+It is used by many religions and cultures around the world and is thought to represent a divine balance of opposing forces such as masculine and feminine energies or the earth and the sky. It also represents interlocking, perfect harmony. 
+
+Some people today consider the hexagram to be a symbol of evil because it has 6 points and 6 sides and refers to the number 666\. The idea of the devil and the association with Wicca and Witchcraft is due to the [Horned Gods](https://wiccanow.com/who-is-a-wiccan-god-your-guide-to-wiccan-deities/#The_Horned_God) association with death. Death is a natural part of life and something that everyone is going to experience at some point. The Horned God is a guide to aid the transition between life and death and doesn’t represent a malicious or evil intent, rather another step in a natural process. I don’t believe that this symbol represents anything evil or malevolent but others might disagree with me. 
+
+There are two versions of the hexagram (as seen above) which are commonly used. The first is known as the unicursal hexagram and consists of one continuous line. The second is commonly made from 2 triangles and is also known as the Star of David.
+
+**Uses in Magick** – Masculine and feminine energies, the harmony of opposing forces, protection
+
+**Correspondences** – The Horned God, King Solomon
+
+### Witchcraft Symbol #25 The Hamsa Hand
+
+This is another extremely recognizable symbol which I’ve noticed many people wearing as jewellery. It can also be called the Hand of Fatima (after the daughter of Muhammad), the Hand of Mary, the Hand of Mariam and the Hand of the Goddess. 
+
+The Hamsa hand is a popular symbol in Africa and the Middle East and represents protection from malevolent forces and intentions as well as calling blessings and power to the wearer. The open palm of the hand invites in all the good things in life while also keeping the negative things at bay.
+
+Some Wiccans and witches believe that the 5 fingers of the hand correspond to love, money, health, power and wisdom. It’s common to inscribe the hand with other symbols of power and protection.
+
+**Uses in Magick** – Protection, power and blessings
+
+**Correspondences** – The Eye of Horus and the God Horus, the All-Seeing Eye, the Goddess Tanit
+
+### Witchcraft Symbol #26 The Spiral
+
+Extremely similar to the Triple Spiral, this is another very ancient symbol which has been used by many cultures around the world. It represents life and our ability to constantly keep exploring and learning. Spirals symbolise nature, the seasons, reincarnation and the pursuit of knowledge. 
+
+**Uses in Magick** – Wisdom, spirituality and learning
+
+**Correspondences** – The Divine spirit and personal evolution
+
+So my lovelies, I hope this gives you the variety of witchcraft symbols you were searching for! Let your intentions manifest, your energies be free from negativity and your life filled with joy.
+
+Until next time,
+
+Blessed be,
+
+Amaria xx
+
+Post Views: 2,896

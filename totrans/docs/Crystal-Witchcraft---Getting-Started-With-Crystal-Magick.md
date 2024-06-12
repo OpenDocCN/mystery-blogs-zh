@@ -1,0 +1,144 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 20:04:34
+-->
+
+# Crystal Witchcraft - Getting Started With Crystal Magick
+
+> 来源：[https://wiccanow.com/crystal-witchcraft/#0001-01-01](https://wiccanow.com/crystal-witchcraft/#0001-01-01)
+
+Hi lovelies and welcome to Wicca Now. As you may already know, Wicca Now is a site where Amaria and I write all about witchcraft, Wicca, crystals and magick. Lately, I’ve been covering a lot of crystal related content, like this post on [how to charge your crystals](https://wiccanow.com/how-to-charge-your-crystals-15-fantastic-tips/), a recipe about [how to make crystal infused water](https://wiccanow.com/how-to-make-crystal-infused-water/) and a post all about [crystal correspondences.](https://wiccanow.com/crystal-correspondences/) Today I thought we’d take a broader look at crystals and magick and talk about crystal witchcraft.
+
+Crystals have always fascinated me and as a child, I remember asking my parents to buy me specific crystals that I’d had my eye on for my birthdays. I used to line my crystal collection up in the sun and observe how they glittered and glowed. Sometimes I’d carry a special crystal in my pocket and touch it throughout the day and I can even remember one specific crystal (a round smooth piece of tigers eye) that I liked to suck on like a hard-boiled piece of candy (strange as it may sound).
+
+What I didn’t realise at the time was that I was intuitively practising a sort of crystal magick. By placing the crystals in the sunlight I was cleansing and charging them, by touching or carrying them with me I was working with the energies of the crystal to help soothe or energise. It’s amazing how most of us are naturally inclined to do certain things as children which we need to relearn to do as adults, don’t you think?
+
+Humanity itself has always had a fascination with crystals; from the ancient Egyptians who wore gemstone jewellery and carried amulets made from crystals to the Romans who named certain crystals after the qualities they were thought to possess. 
+
+By the time a crystal lands in your hand, it has probably already lived an incredibly diverse and storied existence. Maybe the crystal you hold was passed down from mother to daughter for many generations, maybe it lay deep inside a fiery volcano for thousands of years. Perhaps it bubbled up and down with the waters of a subterranean hydrothermal spring or it lay buried deep under many layers of sediment and stone until it was mined and brought forth into the light.
+
+Some crystals are so old that they existed long before humans even walked the earth and whilst many people differentiate between precious and semi-precious crystals, for witches, all crystals are precious and unique.
+
+## How to Practice Crystal Witchcraft
+
+For many beginner or baby witches working with crystals is something that they most look forward to and I can understand why. The beauty and energy embodied by crystals make them a wonderful starting place for rituals, energy work or spells. Working with crystal magick can be incredibly inspiring and enriching for your practice regardless of whether you are a baby witch or one with many years of practice under her or his metaphorical belt.
+
+If you’re interested in elevating your crystal magick and to start seriously practising crystal witchcraft, I’ve outlined some of the main points you might like to consider below:
+
+## **How does Crystal Witchcraft Work?**
+
+Witches generally acknowledge that crystals emit certain frequencies and working with these frequencies forms the basis of crystal witchcraft. While there is no scientific evidence (yet) to confirm that crystals can directly affect our bodies and environments, that doesn’t mean that they don’t. Witches have worked with crystals for centuries and believe that by harnessing a stones specific energy, that they can in turn guide this energy towards a specific problem in order for it to then manifest a solution.
+
+Please note: crystals are in no way a replacement for modern medicine and should not be relied upon to cure any ailments. Please always consult a medical professional for any health-related issued.
+
+### **What Exactly is a Crystal Witch?**
+
+As you may already know, witchcraft is an incredibly diverse field and witches choose to define themselves (or not) in a wide variety of ways. If your interested in learning more about the different types of witches, check out this post Amaria wrote on [20 different types of witches](https://wiccanow.com/what-type-of-witch-are-you-19-types-revealed/). A crystal witch is generally a witch who had decided to focus his or her craft primary on crystal witchcraft and crystal magick. This means that a crystal witch will generally possess wide-ranging knowledge about crystals and the qualities that each crystal enjoys. He or she might choose to work with crystals in the following ways:
+
+Remember that becoming proficient in any area of witchcraft takes time and patience. Learning to become a crystal witch requires a witch to dedicate her or himself to truly understanding the world of crystals, something that might take years and years of practice. Don’t beat yourself up if you feel like you’re not ‘getting it’ at the start, stay persistent and keep working with the stones until their language begins to reveal itself to you.
+
+### **How to Choose Your Crystals**
+
+Many witches believe that a crystal should not be purchased without first seeing it in person. The reason for this is that it is easier to get a feel for a crystal and thereby determine if it is right for you by first holding it or by simply being in its presence.
+
+I don’t really agree with this idea because I believe that the energy contained within crystals is universal and regardless of how a crystal makes it’s way to you, you will always be able to find a way of tapping into its frequency. Also, not everyone has access to a crystal shop and being able to shop for crystals online is a wonderful way of adding to your collection if you don’t happen to have a crystal shop in your neighbourhood. 
+
+Either way, before purchasing a crystal you should first research what sort of crystal you need. If you need help discovering what crystal corresponds to which qualities check out this post I wrote on [crystal correspondences](https://wiccanow.com/crystal-correspondences/).  
+
+Remember also that you don’t need to spend hundreds of dollars on a large-sized crystal, a small crystal will be just as effective. You might also like to invoke a deity to ask for guidance when choosing a crystal. Or you might like to meditate on what you would like the crystal to help you with. Regardless of whether you are shopping for crystals in person or online, listen to your intuition and notice which crystal seems particularly attractive or interesting.
+
+Once you have your new crystal purchase safe at home, welcome it by holding it in your hands and allowing it to warm up. Connect with your crystal by way of an invocation if you like. It could be something along the lines of:
+
+> “Universe, I am open to the energy of this crystal. Help me to build a connection to its frequency.”
+
+### **Preparing Your Crystals for Crystal Magick**
+
+Before working with any of your crystals its super important that they are cleansed and charged. You can find detailed instructions on how to do this here:
+
+### **Crystals and Your Witchy Altar**
+
+An Altar is a witches sacred space. It’s kinda where the magick happens and can be as individual and unique as you like. If you feel like learning more about witchy altars, Ameria’s actually written lots about altars like this post on [how to create a powerful witchy altar](https://wiccanow.com/witchy-altar-set-up/) or this article about [altar decorations](https://wiccanow.com/19-witchy-altar-decorations/). Anyway, seeing as this post is about crystal witchcraft, let’s just jump right in and discuss how you might like to incorporate crystals into your altar or sacred space. 
+
+As a general rule of thumb, I don’t recommend having more than two crystals on your altar at any point of time unless you have a specific spell or ritual which calls for more. The reason for this is that you don’t want to have too many conflicting energies happening on your altar and placing your whole crystal collection on your altar would have just this effect. It’s a better practice to store your [cleansed](https://wiccanow.com/how-to-cleanse-your-crystals-6-no-fuss-tips-and-tricks/) and [charged crystals](https://wiccanow.com/how-to-charge-your-crystals-15-fantastic-tips/) in a special place reserved only for them so that you can easily find and implement them within your spellwork when needed. 
+
+### **A Crystal Witches Toolkit**
+
+While I’m a total fan of improvised magick and making do with what you have, if you’re serious about crystal witchcraft you might like to invest in a crystal magick toolkit to help you enrich your magickal practice. 
+
+A crystal witches toolkit might contain:
+
+*   Candles. Both coloured and plain white
+*   Essential oils to anoint the candles with.
+*   A special box or case to store your crystals in
+*   Salt. Useful for cleansing and for casting a circle
+*   A cloth onto which you can lay out your crystals
+
+## **Essential Crystals for Crystal Witchcraft**
+
+#### **19 Essential Crystals Every Crystal Witch Should Own**
+
+1.  **Agate** – A powerful healing stone
+2.  **Angelite** – The witches choice of crystal for communicating with the higher realm
+3.  **Amber** – Amber isn’t technically a crystal (amber is actually fossilized tree resin) but its awesome healing powers mean it deserves a place on this list
+4.  **Amythest** – An incredible all-around powerhouse of energy
+5.  **Aquamarine** – A powerful force against all things negative.
+6.  **Beryl** – An excellent stone for scrying 
+7.  **Bloodstone** –  A stone of great power. Useful especially for weather magick
+8.  **Carnelian** – Magickal properties of rest and rejuvenation
+9.  **Celestine –** As the name implies, celestine helps us to connect with divine powers
+10.  **Citrine** – Carrys the power of the sun
+11.  **Flourite** – A powerful stone of protection and cleansing
+12.  **Moldavite** – An intensely powerful stone. Some people believe moldavite is of extraterrestrial origin.
+13.  **Moonstone** – A wonderful stone for expanding psychic abilities
+14.  **Onyx** – A stone that brings strength
+15.  **Quartz** – One of the most powerful stones when used magickally 
+16.  **Rose Quartz** –  The crystal of love
+17.  **Tigers Eye** – A crystal for repelling negativity
+18.  **Tourmaline** – A witchy favourite for protection magick
+19.  **Turquoise** – A Beautifully protective stone. 
+
+## Everyday Crystal Rituals and Spells
+
+### A Crystal Witchcraft Spell To Beat The Blues
+
+Everybody can feel a little ‘blue’ from time to time and it’s certainly nothing to be ashamed of. Use this little spell to help lift your mood whenever you need a little magickal boost of positive energy.
+
+**You will need:**
+
+*   A small drawstring pouch
+*   A white candle
+*   A piece of Ammolite
+*   A Ginsing teabag or leaves
+*   Dried basil
+*   Dried sage
+
+**Method**
+
+*   Step 1 -Cleanse and charge your ammolite crystal. Place it on your altar and position the white candle in front of it. Make yourself a cup of ginseng tea and as it seeps, scatter the dried basil and sage onto and around the crystal.
+
+*   Step 2 – Light the candle and as you sip the tea imagine all of your worries and troubles being washed away by a powerful aura of healing white light beaming from your ammolite crystal. Continue to sip your tea and visualise the white light surrounding you with intense positivity.
+
+*   Step 3- When you have finished your tea, thank the crystal for ‘washing away’ your worries and scoop the dried herbs into the pouch. Place the pouch under your pillow and imagine it continuing to flood your bedroom with positive vibes while you sleep. You should feel your mood lift within a few days of working this spell.
+
+### A Crystal Witchcraft Spell To Help You Get A Promotion
+
+If things are a little stagnant at work and you feel like your career could use a boost try this simple spell which taps into the power of aventurine to help give your career a push in the right direction.
+
+**You will need:**
+
+*   A piece of aventurine. Cleansed and charged.
+*   A white tea light or votive candle
+*   A copy of your C.V
+
+**Method:**
+
+*   Step 1 – work this spell on the night of a new moon as this is a powerful time for new beginnings. Place a copy of your CV onto your altar or sacred space. Now place the aventurine crystal onto the CV. Position the candle next to the CV.
+*   Step 2 – light the candle and as the flame burns, recite the following spell: “As this flame burns and the crystals energy flows, new beginnings beckon and the scope of my employment blossoms and grows”. Recite the spell out loud or in your mind as you watch the candle burn. Visualise yourself being handed a promotion as you recite the spell. Try to feel the actual emotion you would experience during a promotion. Image it happening as clearly and as powerfully as you can.
+*   Step 3 – Once you feel like you have summoned a good amount of energy, thank the crystal and the universe for helping you to achieve your goals. Place the aventurine and the C.V together in a safe space and imagine it infusing your work prospects with fresh energy.
+*   Step 4 – Once you have achieved your promotion burn the C.V and make sure to thank the universe for the promotion. Cleanse the aventurine and store it safely for its next use.
+
+Lovelies, I hope that this has given you at least a small glimpse into the wonderful world of crystal witchcraft and inspired you to try out a few new things in your own practice of the Craft. Don’t forget to follow us on [instagram](https://www.instagram.com/witches.of.insta/) for daily witchy inspo and as always, Blessed Be!
+
+## 
+
+Post Views: 1,969
