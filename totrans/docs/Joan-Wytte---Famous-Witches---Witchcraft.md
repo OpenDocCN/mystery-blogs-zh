@@ -1,0 +1,16 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:26:42
+-->
+
+# Joan Wytte - Famous Witches - Witchcraft
+
+> 来源：[https://witchcraftandwitches.com/witchcraft/witches-wytte/#0001-01-01](https://witchcraftandwitches.com/witchcraft/witches-wytte/#0001-01-01)
+
+Joan Wytte was born in 1775 in Bodmin, Cornwall. She was sometimes called the “Fighting Fairy Woman” or the “Wytte (White) Witch”.
+
+Joan was famed as a [**clairvoyant**](http://witchcraftandwitches.com/magic-magick/related-clairvoyance/), and people would seek her services as a seer, [**diviner**](http://witchcraftandwitches.com/divination-fortune-telling/related-divination/) and healer. Her healing practices included the use of “clooties” (or “clouties”), strips of cloth taken from a sick person and tied to a tree or a holy well as a form of sympathetic [**magic**](http://witchcraftandwitches.com/magic-magick/terms-magic/), such that when the cloth rots, the disease was believed to dissipate.
+
+Later in life, she became very ill-tempered as a result of a tooth abscess, and would shout and rail at people. She often became involved in fights where she exhibited remarkable strength and people came to believe she was possessed by the devil. She was eventually incarcerated in Bodmin Jail, not for witchcraft but for public brawling, and due to poor conditions in the jail, Joan died of bronchial pneumonia at the age of 38.
+
+Her bones were disinterred and used for séances and various pranks, then later displayed at the Witchcraft Museum in Boscastle, Cornwall. It is said that, while her skeleton was on display in the museum, they started to experience disruptive poltergeists, and a witch was bought in to advise them, who said that Wytte’s spirit wished to be laid in a proper burial. She was finally laid to rest in a peaceful wooded area in Boscastle, and her gravestone reads: “Joan Wytte. Born 1775\. Died 1813 in Bodmin Jail. Buried 1998\. No longer abused”.
