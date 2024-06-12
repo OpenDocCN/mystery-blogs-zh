@@ -1,0 +1,179 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:03:26
+-->
+
+# Summon Your Own Elemental Wolf - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/spiritual_spells/conjuring_spells/20538/page.html#0001-01-01](https://www.spellsofmagic.com/spells/spiritual_spells/conjuring_spells/20538/page.html#0001-01-01)
+
+<main role="main">
+
+# Summon Your Own Elemental Wolf
+
+  Rated 5/5 Stars
+
+I am not quite happy with the lack of these type of spells (Since I tried one like this and it didn't work) So I decided to make a spell of my own. Tell me if this works for everyone, this spell is the one me and my friend used to summon our Air wolves, Aera and Minerva.
+
+**You will need the following items for this spell:**
+
+*   (If you are doing this with a friend, use as many as you need, these quantities are for a singular use)
+
+*   1 Piece of papyrus/unruled thick paper
+
+*   1 Set of colours/pencils
+
+*   1 Silver/Gold pen/marker
+
+*   Enough space and time to take care of this mythological animal.
+
+## Casting Instructions for 'Summon Your Own Elemental Wolf'
+
+STEP ONE Draw a near-perfect sketch of what your wolf will look like. Draw in Wings, Aura, etc. of whatever you want your wolf to look like/have. But keep in mind, it must be realistic and precise, take art lessons or, if you're a natural good drawer like myself, try to make it as high quality as you possibly can. Try to also avoid the obvious mistakes, like a Fire wolf with a Blue Aura, and only drawing the head. When you are finished with your sketch, write its height above it, and its length. Be precise. Then, colour it in according to its magic Element (See Below). STEP TWO Take a picture of yourself and print it on the same type of paper/papyrus. (NOT the one you used earlier on). Then stick it next to your wolf drawing, and write your height above your picture. STEP THREE Now, fold your paper/papyrus in half and on it, write its powers, like; Name:_________ Age:__________ (or you can just write ∞) Powers:_______ Element:______ Accessories:__ After that, get your Silver/Gold pen or marker and draw a pentagram on either side. After that, hold the paper and chant: (Element) wolf of mine, come to me by egg of (Element). I summon thee, newborn mythical Creature, so mote it be! STEP FOUR Lastly, this is where you must put your heart and soul into this spell. Each day/night, at the same time you finished your drawing chant: O (your religious God), please grant my dream wolf from egg to end! (Element) wolf of mine, come to me by egg of (Element). I summon thee, newborn mythical Creature, so mote it be! On the third night, you should think of your wolf. You will dream of it with you. That following morning, you should look outside in your garden. If you see a cracked egg, or a hollowed-out egg, it doesn't work for you. If not, and you see a perfect round rock, take it inside, if it looks like yours... Air-White Egg, Appears in the windiest spot of garden. Water-Blue Egg, Appears in Pool/Lake/Wettest Spot in your garden. Fire-Red Egg, Appears in BBQ/Hottest Spot in your garden. Earth-Green/Rock Egg, Appears in Garden/Greeniest Spot in your garden. I HOPE YOU GET YOUR WOLF! FAQ'S What if an Egg Doesn't Appear After I Dreamt Of My Wolf? -Wait, and keep on chanting until you can find an egg or two; either cracked or like the following descriptions I mentioned above! What If My Dream Never Comes? -Test Your Magic At http://www.gotoquiz.com/how_much_magic_is_in_your_blood and see if you have enough magic to do this spell. What Should I Feed My Wolf? -Depends on their power, like Earth might be a veg., Fire eats BBQ meat, Air might like Candy Sprays or lamb, and Water might like Fish. Try 'em all!
+
+  **ABOUT THE AUTHOR**
+
+**TheUnisister**
+
+TheUnisister has been a member of the site for 9 years, since May 15, 2015 
+
+### Comments
+
+Comments are open to
+
+[members](/login.html)
+
+.
+
+[Join today](/login.html)
+
+and be part of the largest pagan / new age community online.
+
+So you actually have your wolves
+
+I highly doubt it, this is a fake spell. You aren't going to be able to manifest a physical wolf.
+
+The most likely outcome of this spell would be a servitor in the form of a wolf. However, to manifest an actual wolf is impossible.
+
+that persons a scam, please do not contact them [for some reason i can't delete their comment right now, sorry]
+
+HearthWitch there is not right magic or wrong magic. You can summon any type of elemental. If you chose to perform this spell you may not be doing it right. Reclaim yourself. Call the magic of elements. Blessed be child.
+
+Nekoshema, it specifically says summoning not, manifesting. It's not going to have the exact characteristics you state unless you are specifically looking for the spirit form of a wolf with that description. You're not creating a wolf your summoning you're not creating a wolf, you're summoning it.
+
+DesseaFlame, i never said that. i couldn't delete the previous comment [now deleted] that claimed if you emailed them they could cast for whatever your heart desired
+
+had anyone try and commeted plz i need help
+
+Closest thing you're going to get is summoning a wolf or dog. You can't manifest a physical being.
+
+dose this work?
+
+This is a fake spell, it cannot manifest a physical elemental wolf, that simply isn't possible with magick.
+
+Yes, it is a summoning spell. You will not summon a creature that does not exist, but a wolf or dog with similar characteristics.
+
+i hope it dose
+
+You may hope but it will not work because these do not exist. Try if you want to prove it to yourself. You might wish to look into thought forms, it's just your own energy shaped into whatever you want. It will not be visible or able to do much, but it is a trick I know some people enjoy doing.
+
+It specifically says summoning. Thinking about your wolf will *summon* a wolf or dog with similar characteristics, but you are not manifesting were specifically summoning. The part about taking care of the rock is basically just so that you keep thinking about it continuously, in order to *summon* it by thinking about it.
+
+how do you care for the egg that your wolf is in how do you make it hatch and dose your wolf need special care
+
+This is a fake spell, magick cannot create a physical egg with a magickal wolf inside, that isn't how it works.
+
+I believe you would take care of your wolf like you would a pet dog??? Since they are not really physical wolves and you are the one that raised them, I would assume they will resemble the behavior of a domestic dog rather than that of a wild canine. As for the egg, maybe just keep it warm and make sure it is in a comfortable position and environment for when your wolf hatches. I would assume the wolf would like to hatch in an environment resembling their element. I would not know, tho, because I am not the creator of this spell
+
+oh is their one that can work
+
+Magick cannot create a living creature like this, at best you can work and connect with spirits, but it isn't like this spell offers.
+
+Thanks for the help, I'm new to this.
+
+That's okay. If you're new I would suggest avoiding spells to start with, and begin with learning what magick can and cannot do, as well as some basic practices. The pinned posts in the general forum are a good place to start.
+
+where do you find that?
+
+Find what? What spells work and what don't? Practice mostly, but if you look around the site you can find some beginners guides in the articles and in the forums General Info section. Basically magick is a natural energy and can attract/repel a desired natural change. If a spell claims something unnatural there's a good chance the spell doesn't work because magick is a force of nature and works with it, not against it.
+
+Do you think there is this spell but with a bird instead
+
+What part if ''fake spell'' do you not understand?
+
+Tika what part of ''summoning not manifesting'' do *you* not understand?
+
+Everyone is kind of being mean and its making me wonder if I should have joined this site or not
+
+How are they being mean? Everyone is simply helping others understand what is and isn't possible with magick. If anything it's helpful.
+
+If you're talking about people explaining that this spell is fake, they're right magick doesn't contradict nature! Manifesting a physical wolf is impossible! They are only telling people the truth.
+
+right I hate this site now
+
+why do you hate this site now GirlDeath? because people are trying to educate others on the realities of magick? a thing people have been begging users to do for them for years, and now that we're opening explaining how/why magick works we're seen as ''mean'' because we refuse to lie to you and nurture your delusional fantasy world when we live in reality and practice real magick in our spiritual paths? [sorry if that came off as harsh, i'm just tired]
+
+RyanTheGay and Nekoshema the Spell title specifically says ''summon'', not ''manifest.'' Manifesting is possible in magick! It may be it possible to manifest a physical wolf but this is *summoning* not manifestation. It is possible as long as you don't draw something unrealistic, like a wolf with bat wings or a wolf with antlers. Summoning would come from you thinking about it a lot of the time. Yes, if you're​ continuously thinking about a realistic wolf, you are likely to summon it. Stop being rude and check your facts! Tw1st3dd, it is basically just three people actually acting like that, you do not need to worry about being bullied on this site, and you are less likely to be bullied on here than any other magick websites. I hope that you summon the most perfect wolf/dog you could have hoped for, and I hope that the rude people on this (and all other) magick sites actually start to read the titles of spells and understand the meanings of each and every word in the title.
+
+ok DessaFlame, we heard your point about summoning, enough already. eve if you call it summoning, you can't summon a physical wolf or dog instantly [you can manifest one by visualizing your desired outcome thus sending the wish to the universe] this spell boasts you can design an ''elemental'' wolf with wings and unnatural colours. this doesn't exist. you would be creating your own spiritual being, like a thoughtform or servitor, which wouldn't be summoning as it doesn't exist, it would be manifesting as you're shaping your energy into a desire. as for your constant blithering about reading the title, perhaps you should read the spells outline. you say it won't work if they're trying to summon a wolf with wings or antlers, read the second sentence, how it says you should draw those and other things to specify what you want your wolf to look like.
+
+what happened after you did the spell?
+
+By Lilith and Eve how this turned out was not what I expected. I did this and after about two months of taking care of this white rock a puppy (yes, a spotted white puppy) showed up in my back yard. It's about two months old and she looks similar to the wolf I had drawn  fluffy, ink black speckled face, and brown eyes  and no one in my town (or the surounding towns) have a missing puppy. Not what I expected, but I am taking care of this pup.
+
+This sort of thing depends on your beliefs. The ''egg'' cannot physically hatch but it can be carried as a good luck charm and at times you may have certain visions of your wolf. It will s because after you preformed the spell you thought about it constantly therefore when the puppy appeared you were looking for it in a way. This could be a fake spell depending on what you believe but I don't think that it is fake. There may not be a physical manifestation of the animal but there is a mental presence. I tried this and there was indeed a small dog hanging around me about a week later. Thats because I was looking for it and trying to attract such a pet.
+
+Salexak510, thank you so much for that comment I share your thoughts as well, and I could not have said it better myself
+
+I believe the spell would work, keep in mind its a fantasy spell and you can't literally manifest a wolf in your yard. The spirit realm will allow you to summon and elemental wolf in the form of a pet dog with characteristics you want your wolf to have. Magic wont alter the physical world like in the movies atleast not this type. With practice you'd understand how magic works. Its not always literally the way you imagine it but it does work. Keep an open mind y'all
+
+Will someone please just say that the spell works or not put a yes this spell works or a no this does not work I'm not going to waste my time trying to make something work if it's a fake spell
+
+I really wanna try this spell..and a few others. Will this really work? I just wanna make sure.
+
+And magic is real..so are vampires...don't judge me cuz if u do I will beat u up with chopsticks.
+
+You can try this spell, nobody's going to stop you. We're just explaining what is possible with real magick [becasue there is a difference between the magick real-life pagans work with and fantasy magic shown in movies] Magick is real, but it's not like in movies. Vampires are astral beings, the only vampires on the physical are psy vampires [humans who can drain energy] I doubt anyone would judge you, so your silly threat is rather uncalled for.
+
+I've read most of the comments so let me clear this up. You cannot summon an elemental wolf. Magic does not work like that. If you believe this spell is real, try it yourself if you want to instead of complaining it is in the comments. Its not our job to control or manipulate you. Just don't waste your time doing this spell just to test it.
+
+Can other people see the wolf or is it more of just a spiritual thing? Also, I'm not religious and don't really worship any gods so what should I do for that part of the spell?
+
+Reading over it, this seems fake, but if it worked, it would be spiritual, so the wolf wouldn't be physical. If anyone could see it, it would be people who can see/sense spirits. This also sounds like you're creating a thoughtform or servitor and not summoning anything real [a thoughtform or servitor is created when you pool your energy into a shape. This energy takes on a life of its own and will disappear once you stop feeding it energy. Servitors are created for a specific purpose like you need it to find your keys and vanish once the task is done, while Thoughtforms linger for as long as you interact with them] if that's the case, you don't need to call on a deity, so either omit that part or change the wording to something like ''with my energy, I create you''
+
+If this WAS real, could I just print out a picture of the kind of wolf I want instead of drawing it? I suck at drawing, and I wanna try this, just to waste some time.
+
+more like what kind of *dog* not wolf. I wanna do a pic of a black chihuahua puppy because I love chihuahuas and tiny dogs.
+
+Yes, you can print a photo. You can alter any spell to suit your needs to an extent [if a spell is called ''rose and cinnamon spell'' and you choose to substitute both the rose and cinnamon, it's not the same spell]
+
+So let me get this straight, it's obvious you can't create a physical wolf because it's impossible with magick, most of the people say you could create a servitor by doing it, some say you summon an astral being wolf, so what is it after all? I also have a question, could this spell help attract wolves? Like as lot of people saying this spell is based on manifestation so it could be possible to draw a physical wolf (not in an instant) by doing it, correct? If it isn't, then, I'm sorry, still new here
+
+It's fine. If this spell works, you could create a servitor or invite an astral/spiritual being to you. As for the physical wolf, it's highly unlikely. If you live in an area where wolves are common, you might see one in the wild if you put the intention out there. Don't expect to wake up the next day with a pet wolf, but you might notice more items with wolf symbolism, shows about wolves, and possibly one day having a pet wolf, but magick follows the path of least resistance, and since most people don't own wolves, it's more likely you'll meet a spirit or astral wolf being than owning a physical wolf.
+
+This spell is not going to work
+
+This does not work, it is fake. There is no such thing as an elemental wolf. At best, what you are doing is creating a type of servitor.
+
+I'm starting to wonder if some of the people that make the spells are trying to spell the words or just need help with spelling them out?
+
+''I am not quite happy with the lack of these type of spells (Since I tried one like this and it didn't work) So I decided to make a spell of my own. Tell me if this works for everyone, this spell is the one me and my friend used to summon our Air wolves, Aera and Minerva.''Wait, ''Minerva as in ''Minerva McGondal''? From Harry Potter?
+
+* * *
+
+* * *
+
+Is this content used without proper permission?
+Please report any violations of copyright via our [contact](/contact.html?comment=copyright&offending=https%3a%2f%2fwww%2espellsofmagic%2ecom%2fspells%2fspiritual%5fspells%2fconjuring%5fspells%2f20538%2fpage%2ehtml) page.
+
+* * *
+
+*****
+
+All information on this page is provided by the coven or person named and the contents of this page is not mediated by the administrators of the website. Please use common sense when following any directions on this page. Do not ingest anything which does not seem safe. If you suspect the content of this page to be intentionally deceiving please
+
+[contact us](/contact.html)
+
+immediately.
+
+</main>
