@@ -1,0 +1,98 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:11:39
+-->
+
+# Voodoo Doll for Advanced Witches - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/luck_spells/bad_luck_spells/25062/page.html#0001-01-01](https://www.spellsofmagic.com/spells/luck_spells/bad_luck_spells/25062/page.html#0001-01-01)
+
+<main role="main">
+
+# Voodoo Doll for Advanced Witches
+
+A highly effective voodoo doll with a cloaking spell in it to ensure the victim is unaware of their manipulation. It should BE NOTED that this spell can be used for physical harm but works more effectively for spiritual and mental manipulation.
+
+ ## Casting Instructions for 'Voodoo Doll for Advanced Witches'
+
+**You will need the following items for this spell:**
+
+*   -Your targets nail clippings, hair, blood, spit, skin(the more you have the better)
+
+*   -Rice/bean filling(or other to suit your taste)
+
+*   -Handwriting of your target(A boosted plus)
+
+*   -Targets name, written
+
+*   -cloth (works even better if it belongs to them)
+
+*   -sewing kit(if it is a binding doll, black headed pins, if healing/binding specific chakras, use corresponding colors, if a physical for harm doll, use red and black)
+
+**You will need the following items for this spell:**
+
+*   -Your targets nail clippings, hair, blood, spit, skin(the more you have the better)
+
+*   -Rice/bean filling(or other to suit your taste)
+
+*   -Handwriting of your target(A boosted plus)
+
+*   -Targets name, written
+
+*   -cloth (works even better if it belongs to them)
+
+*   -sewing kit(if it is a binding doll, black headed pins, if healing/binding specific chakras, use corresponding colors, if a physical for harm doll, use red and black)
+
+Make the doll by cutting the cloth into the shape of a humanoid figure. Not too small or you wont be able to fit your ingredients into it. Make it approximately 6inches tall by 3 inches wide. Make sure to make the arms thick enough to put your filling into it. The bigger the doll, the easier it will be to channel energy into your pins and doll. When you've sewn the doll, start to fill it up with your filling material. When you are half full, start putting targets personal items into it.
+NOTE; If you are making a HEALING DOLL use crystals and other healing herbs inside the doll. If you are making a HEX DOLL with intent of PHYSICAL HARM or DEATH, add items such as animal bones(or human if you can get your hands on them), dead bird's feathers, dead animals blood(put it in a WELL SEALED container in the doll for disease and health safety). For Ill intent dolls, the more personal items you put in, the better. NOTE END.
+Finish filling the doll after all items have been added. When finished, sew the opening and begin to mediate on the dolls purpose. Be specific and if it helps, say your intentions out loud.
+NOTE; If the doll is being preformed on another witch and/or they are capable of being aware of being manipulated through magickal purposes, make a binding knot magick string to mask and cloak the doll. Make sure it is powerful, your doll is going to be strong, the cloak needs to be stronger. NOTE END.
+Then, add pins as nesseccary, stating/meditating on the intent of each pin.
+If you have an ill intent doll, keep it well hidden, and protect yourself as much as possible in case of magick back lash.
+
+Stay safe lovelies!
+
+  **ABOUT THE AUTHOR**
+
+**AJ12**
+
+AJ12 has been a member of the site for 11 years, since Nov 30, 2012 
+
+### Comments
+
+Comments are open to
+
+[members](/login.html)
+
+.
+
+[Join today](/login.html)
+
+and be part of the largest pagan / new age community online.
+
+You can create poppets and dolls for anything. [You can create one in your own image for healing] As mentioned in the spell, stuffing the doll with the person hair, skin, nails, spit, blood, will personalize it, while the items you choose to stuff it with will charge the doll with the specific energy you require [healing, love, cursing, luck, protection]
+
+What would I put in it if I'm making a doll for manipulation
+
+Is there a specific type of manipulation? If it's love for example you would combine herbs with love [barley, basil, rose] with baneful herbs [chicory, guinea pepper, Jezebel root] and personal items from the target [hair, nails, spit] then enchant the doll while focusing on your desired outcome. If you choose to stab the doll with pins, charge each pin with your anger, visualize the person's sudden misfortune, then stab the doll [again, where specifically depends on what the doll is intended for. Love in the heart, if you want them to feel pain you could stab them all over, if it's money, stab their side where their wallet would be]
+
+This is a basic outline on making a Voodoo doll, however, if you do not practice Hoodoo/Voodoo/Vodou do not attempt this because it is a closed practice and you could anger the spirits. Research poppets if you wish to make dolls in anothers likeness for spell work.
+
+* * *
+
+* * *
+
+Is this content used without proper permission?
+Please report any violations of copyright via our [contact](/contact.html?comment=copyright&offending=https%3a%2f%2fwww%2espellsofmagic%2ecom%2fspells%2fluck%5fspells%2fbad%5fluck%5fspells%2f25062%2fpage%2ehtml) page.
+
+* * *
+
+*****
+
+All information on this page is provided by the coven or person named and the contents of this page is not mediated by the administrators of the website. Please use common sense when following any directions on this page. Do not ingest anything which does not seem safe. If you suspect the content of this page to be intentionally deceiving please
+
+[contact us](/contact.html)
+
+immediately.
+
+</main>
