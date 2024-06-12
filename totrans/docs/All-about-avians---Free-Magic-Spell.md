@@ -1,0 +1,52 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:13:41
+-->
+
+# All about avians - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/beauty_spells/body_spells/26085/page.html#0001-01-01](https://www.spellsofmagic.com/spells/beauty_spells/body_spells/26085/page.html#0001-01-01)
+
+ (Info taken from my website, provided by my co-leader Buitre. My Weyr's website: https://phenexusweyr.wixsite.com/home )
+
+**What are avians?**
+
+Avians are winged humanoids, people who have undergone the process of growing wings, air sacks, hollow bones, and feathers for flight. Contrary to popular belief, wing growth is not shifting. They often have wings very similar, if not exactly like a bird's, as feathered wings are the most efficient for flight. Avians can have the wings of hawks, eagles, or even quail. An Avian's wing type is almost a spiritual connection, it is such a deep link that even looking at the wings can cause phantom sensations and pain. Avians seek out wing growth due to a "call to the sky" that is very powerful and present since early childhood. Some say that avians have a unique genetic makeup that allows them to grow wings, others say anyone can grow wings.
+
+**How wings grow**
+
+Wings require upwards of three years of visualisation, energy manipulation, focus, and willpower to grow. Constant visualisation and mental shifting is required. Internal changes happen first - your bone structure begins to change to allow wings to grow, your internal bone structure begins to become hollow, air sacks form behind the lungs and your lungs get larger (resulting also in a larger ribcage and chest), and you begin to lose weight as your metabolism speeds up. Second, your body begins to develop the muscle. Your pectoral muscles will shrink to make room for the second set of pectorals (as wings are modified arms), and you may lose muscle power as a result. You will begin to gain muscle on your back as well, that will link your new pectorals to your wings. Third, your stem cells start to produce the skin tissue, cartilage, and bone of your wings. The wings start as a lump of cells then begin to separate, appearing as a "nub" before they begin to look like wings. You will start to develop down feathers at this time as well. Once wings "sprout", they grow quickly. Once bone and cartilidge is formed, down feathers will quickly shed and become flight feathers. The very minimum size of fully grown, ready-to-fly wings is 18 feet, and most avians have wings that span within 20 to 30 feet.
+
+**The Basic Method**
+
+A common method used by avians involves incorporating them into your daily life through constant visualisation, phantom shifting, and mental shifting. You must learn what your wingtype is, how it flies, what are the benefits, what kind of flight it is best at, etc. Then, you must start to visualise yourself with the wings. You can visualise the changes happening in order, or you can visualise with fully grown wings. Meditate every night about your wings, see them grow and develop. Mentally feel what it would be like to fly, to soar, to take off. Visualise constantly and phantom shift every time you can. Phantom wings may start to become permanent and pain should be commonplace. Keep pushing and take progress pictures at least once a month to compare. Once notable growth starts, you will see rapid changes.
+
+**Estimates**
+
+The following are estimates about wing growth and wings.
+
+Please note that none of these include what will happen if you lose faith, stop growing for a few months, etc.
+
+Average time to grow flight-ready wings: 3 years
+
+Average wing span : 22 feet (6.7m)
+
+Average wing width (top of skin to bottom of secondaries): 3 feet
+
+The following estimates were found by energy mapping and astral projection.
+
+# of avian genetic holders in USA: 617,983
+
+# of avians with wings in USA: 1,362
+
+# of wing growers in USA: 22,674
+
+**Subliminal playlist**
+
+Many avians and wing growers use subliminals to help their progress. Listening to subliminals at a low volume during meditation is a good way to boost your progress as your subconscious is more likely to be receptive during meditation. Here is a playlist of wing subliminals and a booster. : https://www.youtube.com/playlist?list=PLdmSwMYir8Qh8EskJNjXM_RUD7eNUPcui
+
+**​Closing notes**
+
+Wings cannot be hidden, they cannot be shifted away, and they are visible to everyone who sees you. Growing wings is a dangerous task not suitable for all people. Many avians have encounters with hunters and end up dead due to being too reckless, out there, or attempting to expose themselves. The only time wings may be able to be shown in public would be at a cosplay convention, but even that is dangerous. Do not become an avian if you are not prepared for having to give up your social life, school, public places, friends, and even family gatherings.
+
+You will be alone and relying on parental support or online jobs.

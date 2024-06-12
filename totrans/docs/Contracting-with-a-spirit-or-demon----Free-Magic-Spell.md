@@ -1,0 +1,56 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:14:14
+-->
+
+# Contracting with a spirit or demon. - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/spiritual_spells/conjuring_spells/26350/page.html#0001-01-01](https://www.spellsofmagic.com/spells/spiritual_spells/conjuring_spells/26350/page.html#0001-01-01)
+
+ This spell in it's entirety takes month to complete and completion should be timed to the full dark moon, even so at completion you are at the mercy of the spirits whether your offer is accepted. Do not be naive, you are offering yourself, your soul as collateral, so do not use this as a way to find love or get worldly items you can get through hard work. 
+
+Day one, week one. Write down on notebook paper what you desire out of the contract, be detailed, be thorough, cover all possible loopholes. Demons and spirits have a cruel sense of humor.
+
+Day two write down on notebook paper that you are willing to offer yourself and your soul to make your desire reality.
+
+Day three through seven repeat day one and two on a new piece of notebook paper. Improve your drafts as you go and visualize your desire becoming reality. Close all loopholes and make certain that you are willing to go through with the contract.
+
+Day one week two, you will need to go to a local cemetery where you need to collect the dirt from an old grave and the dirt from a fresh grave in the Mason jar. This will be crucial in gaining the attention of the other side. 
+
+For the rest of week two hold the jar for an hour a day meditating on what you desire and how far you will go to achieve your goal. 
+
+Day one Week three, you will spend this week in meditation holding the jar two hours a day, and finalizing your contract before you reach the final stages.
+
+Day one week four, sit in quiet contemplation of your desire, your actions, and your payment. This should be done for no less than three hours.
+
+Day Two week four write down on the parchments three copies of the contract, these must match word for word.
+
+Day three week four, review the contracts on the parchment, if you are satisfied with them burn the notebook drafts and meditate holding the jar until the ashes are cooled.
+
+Day four week four, again review the contracts, take your last chance to back out at this point if you have any uncertainty. Meditate holding the jar for the last time. 
+
+Day five week four, read aloud each parchment. At the end of the reading you will take the knife and cut yourself slightly, I reccomend the back of the arm. You will then take your thumb, dip it in the blood and leave a thumbprint on the bottom of each parchment. When it dries sign it over the blood. Clean the wound and leave the contracts sit out overnight. This is now a valid contract until rejected and cannot be reneged on or destroyed.
+
+Day six week four, fold and seal each contract so it will fit in the jar with the dirt. You can substitute paperclips for sealing wax in this instance. Seal the jar tightly.
+
+Day seven week four, go to your crossroads at the rise of the full dark moon. Dig a hole deep enough for the jar to fit completely. Place the jar in the hole and state loudly and clearly,
+
+'Spirit from the other side I call thee to enter into a binding contract with me. I make this request willingly and without fear or apprehension. Come and accept the terms of this contract. I shall return in three days time for your answer, I beseech thee to fulfill these desires.'
+
+You will now bury the jar and mark the spot so in three days you can find it again.
+
+On the third day dig up the jar, one of four possible outcomes will have occurred.
+
+1\. Your contract was rejected and there is no change.
+
+2\. Your contract was rejected and destroyed.
+
+3\. Your contract was accepted which you will know by the wax being broken or paperclips removed.
+
+4\. Your jar will be missing which typically means someone else dug it up. 
+
+If 1 or 2 happens burn any remaining parchment and dispose of the dirt in the running water. 
+
+If 3 happens congratulations and I am sorry it had to cost so dearly.
+
+If four happened I am sorry people can't leave well enough alone, if you must try again start over fresh.
