@@ -1,0 +1,66 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:44:15
+-->
+
+# Your Hands Will Lift By Themseleves - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/beauty_spells/body_spells/8741/page.html#0001-01-01](https://www.spellsofmagic.com/spells/beauty_spells/body_spells/8741/page.html#0001-01-01)
+
+<main role="main">
+
+# Your Hands Will Lift By Themseleves
+
+  Rated 5/5 Stars
+
+It actually works,not like other spells NOTE: works better when person has their eyes closed while counting.
+
+ ## Casting Instructions for 'Your Hands Will Lift By Themseleves'
+
+**You will need the following items for this spell:****You will need the following items for this spell:**First,Make the person clear out their mind and then count to 20 in their mind. when this is done snap your finger 20 times against the person's ears and then cross their hands 20 times.
+Then,make the person count to 15 in their mind and when theyre done snap your fingers 15 times against their ears and cross their hands 15 times.
+Now,make the person count to 10 in their mind and snap your fingers 10 times against their ears and cross the person's hands 10 times.
+make person, count to 5 in their mind and snap your fingers 5 times against their ears and cross their hands 5 times.
+Finally, make the person count to 1 in their mind and snap your fingers against their ears 1 time and cross their hands one time.
+Now when all of this is done make person say a lot of times (its in spanish) ''Charlie Charlie, levantame las manos para que este juego se termine'' or they can say it in english ''charlie charle lift my hands so this game can be over'' (it works better if you say it in spanish and it doesnt work on everyone,mostly it works on kids and teenagers)
+
+  **ABOUT THE AUTHOR**
+
+**seliina**
+
+seliina has been a member of the site for 13 years, since Dec 29, 2010 
+
+### Comments
+
+Comments are open to
+
+[members](/login.html)
+
+.
+
+[Join today](/login.html)
+
+and be part of the largest pagan / new age community online.
+
+This does not work. Charlie Charlie is not real, nor is levitation.
+
+I mean, it might work at 3am, because, you know, ''devil's hour'' and whatnot, but that's most likely not true.
+
+* * *
+
+* * *
+
+Is this content used without proper permission?
+Please report any violations of copyright via our [contact](/contact.html?comment=copyright&offending=https%3a%2f%2fwww%2espellsofmagic%2ecom%2fspells%2fbeauty%5fspells%2fbody%5fspells%2f8741%2fpage%2ehtml) page.
+
+* * *
+
+*****
+
+All information on this page is provided by the coven or person named and the contents of this page is not mediated by the administrators of the website. Please use common sense when following any directions on this page. Do not ingest anything which does not seem safe. If you suspect the content of this page to be intentionally deceiving please
+
+[contact us](/contact.html)
+
+immediately.
+
+</main>
