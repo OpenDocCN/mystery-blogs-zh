@@ -1,0 +1,83 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 18:45:29
+-->
+
+# Blessing for the Heart of the Home - Free Magic Spell
+
+> 来源：[https://www.spellsofmagic.com/spells/spiritual_spells/banishing_spells/9369/page.html#0001-01-01](https://www.spellsofmagic.com/spells/spiritual_spells/banishing_spells/9369/page.html#0001-01-01)
+
+<main role="main">
+
+# Blessing for the Heart of the Home
+
+This is a candle, crystal and representational spell which calls upon Hestia, goddess of the hearth and home, to bring her qualities of constancy, calmness and gentleness to bear on your home. Hestia is supportive of the family and home and was praised by the poet Homer in ancient Greece.
+
+ ## Casting Instructions for 'Blessing for the Heart of the Home'
+
+**You will need the following items for this spell:**
+
+*   Lavender candle
+
+*   small silver or brass bowl
+
+*   Lavender flowers
+
+*   Small piece of amethyst
+
+**You will need the following items for this spell:**
+
+*   Lavender candle
+
+*   small silver or brass bowl
+
+*   Lavender flowers
+
+*   Small piece of amethyst
+
+ Before placing the candle in the bowl raise the latter above your head in both hands and say: "Hestia, you who tends the holy house of the lord Apollo, draw near, and bestow grace upon my home" 
+
+Place the candle in the bowl, making certain the candle will stand firmly. Light the candle and when it is properly alight pass the amethyst three times through the flame and say: "Hestia, glorious is your portion and your right".
+
+Place the amethyst in your hearth or close to your fireplace. (If you have no fireplace then as close to the centre of your home as possible.) Sprinkle some of the lavender flowers across your doorway to keep your home safe. Say: "Hail Hestia, I will remember you".
+
+Allow the candle to burn down and then place some of the lavender flowers in the bowl, leaving it in a safe space. At times when the atmosphere in the home becomes somewhat fraught, this spell can bring a period of peace and tranquillity. The bowl, lavender flowers and amethyst are all sacred to Hestia and remind you of her presence. 
+
+  **ABOUT THE AUTHOR**
+
+**Angelina_20**
+
+Angelina_20 has been a member of the site for 14 years, since Jul 29, 2010 
+
+### Comments
+
+Comments are open to
+
+[members](/login.html)
+
+.
+
+[Join today](/login.html)
+
+and be part of the largest pagan / new age community online.
+
+There are no comments for this article
+
+* * *
+
+* * *
+
+Is this content used without proper permission?
+Please report any violations of copyright via our [contact](/contact.html?comment=copyright&offending=https%3a%2f%2fwww%2espellsofmagic%2ecom%2fspells%2fspiritual%5fspells%2fbanishing%5fspells%2f9369%2fpage%2ehtml) page.
+
+* * *
+
+*****
+
+All information on this page is provided by the coven or person named and the contents of this page is not mediated by the administrators of the website. Please use common sense when following any directions on this page. Do not ingest anything which does not seem safe. If you suspect the content of this page to be intentionally deceiving please
+
+[contact us](/contact.html)
+
+immediately.
+
+</main>
