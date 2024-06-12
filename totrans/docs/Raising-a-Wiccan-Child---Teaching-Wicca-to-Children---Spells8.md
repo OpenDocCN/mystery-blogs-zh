@@ -1,0 +1,70 @@
+<!--yml
+category: 未分类
+date: 2024-06-12 19:59:19
+-->
+
+# Raising a Wiccan Child & Teaching Wicca to Children – Spells8
+
+> 来源：[https://spells8.com/teaching-wicca-children/#0001-01-01](https://spells8.com/teaching-wicca-children/#0001-01-01)
+
+If you’re here, it is likely because the Magic of [Wicca](https://spells8.com/courses/wicca-self-initiation/) is deeply embedded in your life. Whether we engage in regular ritual work or celebrate the [Sabbats](https://spells8.com/sabbats-ideas-grimoire-pages/), it is natural to want to share in these practices with our children.
+
+Fundamentally, **Wiccans worship Nature and Mother Earth for her natural abundance**. We celebrate all that is alive, and vow to conduct as little harm as possible. We spread love, joy, and messages of heartfelt peace. And there is no reason why we should not introduce our children to the [Wiccan Way of Life](https://spells8.com/topic/the-wiccan-way/).
+
+## Teaching Wicca to Children: The Basics
+
+When we are children, we are much more receptive to the idea of real Magic. Our intuitions have yet to be clouded by nay-sayers and the materialism of the world, rather we are open to any and all possibilities. **Childhood is an ideal time to introduce Wicca**, as children will receive these messages with pure and open hearts.
+
+### The Wheel of the Year
+
+Like anything, it is important to begin with the basics. **Start by teaching your children about the turning of the seasons** (the [Wheel of the Year](https://spells8.com/wheel-of-the-year-sabbats/)) and how they embody the cycle of life, death and rebirth. Explain to them that the world has a natural rhythm.
+
+**Take them outside during different times of the year** and show them how each season affects the natural flora and fauna where you live. Let them to begin to identify the sights, sounds, smells and energies of each cycle and talk to them about what it represents to them.
+
+#### Wheel of the Year Printable Page
+
+In Wicca, the beginning of each season is celebrated with holidays called Lesser Sabbats. In between each solstice and equinox there are “Cross Quarter days” or Greater Sabbats, which are also celebrated.
+
+[Download this Free Printable Page](https://spells8.com/printable-pages-book-shadows/)
+
+### Wiccan Values
+
+Teach them the basics of compassionate love and respect. Children are already imbued with natural tendencies towards love and understanding, but it is an opportune time to show them how we can actively practice compassion in our daily lives. Watch a video about [**Wiccan Values**](https://spells8.com/topic/wiccan-values/).
+
+Keep in mind that your **children will learn more from observing** how you treat them, how you interact with others and how you react in different situations. Their interpretation of the [**Wiccan Rede**](https://spells8.com/topic/the-wiccan-rede-song/) as a code of conduct can be undermined if your children see you behave in ways that contradict what you’ve taught them.
+
+Introduce them to [critical thinking](https://spells8.com/topic/critical-thinking-personal-growth/) so they can compare and contrast different spiritual paths, points of view, and understand other perspectives. [**Religious tolerance**](https://spells8.com/lessons/eclectic-wicca/) should be an integral part of a child’s Wiccan education.
+
+Consider starting a [journal](https://spells8.com/courses/book-of-mirrors-witch-journal/) where they can collect thoughts and ideas, make morning gratitude lists, write poems or spells, and track their development.
+
+### Sabbats (or Wiccan holidays)
+
+[**Sabbats**](https://spells8.com/magic/sabbats/) are a sacred part of any Wiccan’s practice. **They mark the changing of the Earth’s natural seasons and are typically celebrated with corresponding rituals**. In addition to teaching your children about the natural seasons, celebrate the Sabbats with them!
+
+For example, [Samhain](https://spells8.com/how-to-celebrate-samhain-rituals-ideas/) falls on October 31^(st) (or as most people know it, Halloween) and represents a time to connect with life beyond the veil and to **honor our ancestors**. This may be a great time to teach them the importance of connecting with our ancestry by completing a family tree together or making an altar with them.
+
+Did you know that Samhain is considered the Witches’ New Year? [Print this coloring page!](https://spells8.com/samhain-solitary-celebration-ritual/)
+
+Or for [Beltane](https://spells8.com/beltane-celebration-ritual-castalong/), consider making a little Faerie Garden together or masks representing the Green Man. Perhaps develop a family abundance ritual for this day, which might include planting new flowers or herbs in the garden and a poem about the growth of Spring.
+
+For any of the Wiccan holidays, rituals can be modified to include children in them. **Share your seasonal altar with them**. Explain to them why each piece is selected, what you use it for, and why it is so special to you. Over time, they may become interested in building their [first altar](https://spells8.com/lessons/wiccan-pagan-altar/) just like you.
+
+Children are a beautiful part of the Earth’s cycle, and they will likely take great joy in celebrating these holidays with you!
+
+### Rituals, Spellwork, and Magickal Practices
+
+**Whenever possible, include your children in your ritual work!** If you are engaging in a protection spell, invite your children along with you. Show them how you use your [Witch’s Herbs](https://spells8.com/courses/green-witchcraft-course/), and have them repeat your incantations to you.
+
+Guide them through the process and explain to them that Magic is a simple transfer of energy. Teach them how different component of the spells work with one another, and slowly they will begin to learn and partake in their own little rituals. [**See also: Witch Exercises for Beginners**](https://forum.spells8.com/t/witch-exercises-for-beginners-energy-work-from-the-spiral-dance/4270)🔮
+
+### Reverence for Nature
+
+A life lived outside is a life well-lived. In conjunction with teaching your children about the natural seasons, **make sure you are taking them outside as much as possible**. Encourage them to leave the screens behind and talk a walk outside. Help them find ways to admire the trees, plants, and wildlife that you see.
+
+Guide your kids on regular hikes where you can consider teaching them how to forage and identify native flora to your area. When you are at home, **teach them how to cultivate, dry, and use the plants you both find outside**. Teach them how to identify the natural world around them and they are sure to grow up with a deep, profound reverence for nature.
+
+Another idea is going on outside trash clean-ups. Together, you can spend a few hours on the weekend cleaning a natural area of any debris. Through this, you can teach your kids the importance of leaving natural spaces better than you found them and the responsibility Wiccans have for protecting their planet.
+
+### In Conclusion: Wicca for Children
+
+Wicca is a form of [Nature-based spirituality](https://spells8.com/nature-spirituality/) and a friendly practice **which you can teach to any of your children**. You have an opportunity to open their eyes the beautiful world around them and instill them with a deep regard for all life. With this, comes natural joy, peace, and presence – the stuff of a transcendent childhood! Wicca for children will encourage them to grow up grow up confident, mindful, and compassionate.
