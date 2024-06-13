@@ -1,0 +1,23 @@
+- en: <!--yml
+  prefs: []
+  type: TYPE_NORMAL
+- en: 'category: 未分类'
+  prefs: []
+  type: TYPE_NORMAL
+- en: 'date: 2024-06-12 20:05:12'
+  prefs: []
+  type: TYPE_NORMAL
+- en: -->
+  prefs: []
+  type: TYPE_NORMAL
+- en: Purchase Confirmation Wiccan Gathering
+  prefs:
+  - PREF_H1
+  type: TYPE_NORMAL
+- en: 来源：[https://www.wiccangathering.com/checkout/purchase-confirmation/#0001-01-01](https://www.wiccangathering.com/checkout/purchase-confirmation/#0001-01-01)
+  prefs:
+  - PREF_BQ
+  type: TYPE_NORMAL
+- en: Thank you for your purchase! [edd_receipt]
+  prefs: []
+  type: TYPE_NORMAL

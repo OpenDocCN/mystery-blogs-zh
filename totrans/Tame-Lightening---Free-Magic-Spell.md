@@ -1,8 +1,0 @@
-<!--yml
-category: 未分类
-date: 2024-06-12 18:42:46
--->
-
-# Tame Lightening - Free Magic Spell
-
-> 来源：[https://www.spellsofmagic.com/spells/spiritual_spells/power_spells/7684/page.html#0001-01-01](https://www.spellsofmagic.com/spells/spiritual_spells/power_spells/7684/page.html#0001-01-01)
