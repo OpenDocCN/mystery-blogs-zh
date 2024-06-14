@@ -1,29 +1,45 @@
 - en: <!--yml
+  id: totrans-0
   prefs: []
   type: TYPE_NORMAL
+  zh: <!--yml
 - en: 'category: 未分类'
+  id: totrans-1
   prefs: []
   type: TYPE_NORMAL
+  zh: 类别：未分类
 - en: 'date: 2024-06-12 20:04:53'
+  id: totrans-2
   prefs: []
   type: TYPE_NORMAL
+  zh: 日期：2024年6月12日 20:04:53
 - en: -->
+  id: totrans-3
   prefs: []
   type: TYPE_NORMAL
+  zh: -->
 - en: Disclaimers Wiccan Gathering
+  id: totrans-4
   prefs:
   - PREF_H1
   type: TYPE_NORMAL
+  zh: Wiccan Gathering免责声明
 - en: 来源：[https://www.wiccangathering.com/disclaimers/#0001-01-01](https://www.wiccangathering.com/disclaimers/#0001-01-01)
+  id: totrans-5
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: 来源：[https://www.wiccangathering.com/disclaimers/#0001-01-01](https://www.wiccangathering.com/disclaimers/#0001-01-01)
 - en: '**Last updated** January 22, 2024'
+  id: totrans-6
   prefs: []
   type: TYPE_NORMAL
+  zh: '**最后更新日期** 2024年1月22日'
 - en: '**WEBSITE DISCLAIMER**'
+  id: totrans-7
   prefs: []
   type: TYPE_NORMAL
+  zh: '**网站免责声明**'
 - en: The information provided by Lakshya Ventures, LLC (“we,” “us” or “our”) on www.wiccangathering.com (the
     “Site”) is for general informational purposes only. All information on the Site is
     provided in good faith, however we make no representation or warranty of any kind,
@@ -33,11 +49,15 @@
     OF THE USE OF THE SITE OR RELIANCE ON ANY INFORMATION PROVIDED ON THE SITE. YOUR
     USE OF THE SITE AND YOUR RELIANCE ON ANY INFORMATION ON THE SITE IS SOLELY AT
     YOUR OWN RISK.
+  id: totrans-8
   prefs: []
   type: TYPE_NORMAL
+  zh: Lakshya Ventures, LLC 在 www.wiccangathering.com（“本站”）提供的信息仅供一般信息目的。本站上的所有信息均以诚信提供，但我们对本站上提供的任何信息的准确性、充分性、有效性、可靠性、可用性或完整性不作任何明示或暗示的陈述或保证。在任何情况下，我们对您因使用本站或依赖本站上提供的任何信息而导致的任何损失或损害概不负责。您使用本站及依赖本站上任何信息完全出于自己的风险。
 - en: '**EXTERNAL LINKS DISCLAIMER**'
+  id: totrans-9
   prefs: []
   type: TYPE_NORMAL
+  zh: '**外部链接免责声明**'
 - en: The Site may contain (or you may be sent through the Site) links to other websites
     or content belonging to or originating from third parties or links to websites
     and features in banners or other advertising. Such external links are not investigated,
@@ -47,11 +67,15 @@
     LINKED THROUGH THE SITE OR ANY WEBSITE OR FEATURE LINKED IN ANY BANNER OR OTHER
     ADVERTISING. WE WILL NOT BE A PARTY TO OR IN ANY WAY BE RESPONSIBLE FOR MONITORING
     ANY TRANSACTION BETWEEN YOU AND THIRD-PARTY PROVIDERS OF PRODUCTS OR SERVICES.
+  id: totrans-10
   prefs: []
   type: TYPE_NORMAL
+  zh: 本站可能包含超链接（或者您可能通过本站被发送至）指向第三方拥有或源自的其他网站或内容，或者指向横幅广告或其他广告中的网站和功能。此类外部链接不经过我们的调查、监视或检查，无法保证其准确性、充分性、有效性、可靠性、可用性或完整性。我们不对通过本站链接的第三方网站提供的任何信息的准确性或可靠性作出保证、认可、担保或承担责任，也不会对您与第三方产品或服务供应商之间的任何交易进行监测或负任何责任。
 - en: '**PROFESSIONAL DISCLAIMER**'
+  id: totrans-11
   prefs: []
   type: TYPE_NORMAL
+  zh: '**专业免责声明**'
 - en: 'The Site cannot and does not contain professional advice of any kind, including
     but not limited to: medical, dietary, health, financial, career, or religious
     advice, or psychological counseling. Information is provided for general informational
@@ -60,44 +84,60 @@
     you to consult with the appropriate professionals. We do not provide any kind
     of advice. THE USE OR RELIANCE OF ANY INFORMATION CONTAINED ON THIS SITE IS SOLELY
     AT YOUR OWN RISK.'
+  id: totrans-12
   prefs: []
   type: TYPE_NORMAL
+  zh: 本站无法提供任何专业建议，包括但不限于：医疗、饮食、健康、财务、职业或宗教建议，或心理咨询。信息仅供一般信息和教育目的使用，不代替专业建议。因此，您在采取任何基于此类信息的行动之前，我们鼓励您咨询适当的专业人士。我们不提供任何形式的建议。您对本站上包含的任何信息的使用或依赖完全出于自己的风险。
 - en: '**AFFILIATES DISCLAIMER**'
+  id: totrans-13
   prefs: []
   type: TYPE_NORMAL
+  zh: '**关联免责声明**'
 - en: 'The Site may contain links to affiliate websites, and we receive an affiliate
     commission for any purchases made by you on the affiliate website using such links. Our
     affiliates include the following:'
+  id: totrans-14
   prefs: []
   type: TYPE_NORMAL
+  zh: 本站可能包含指向联盟网站的链接，我们将根据您使用这些链接在联盟网站上进行的任何购买赚取联盟佣金。我们的联盟包括以下内容：
 - en: WiccanGathering.com is a participant in the Amazon Services LLC Associates Program,
     an affiliate advertising program designed to provide a means for sites to earn
     advertising fees by advertising and linking to Amazon.com.
+  id: totrans-15
   prefs: []
   type: TYPE_NORMAL
+  zh: WiccanGathering.com是亚马逊服务有限责任公司联属广告计划的参与者，旨在通过向Amazon.com宣传并链接来赚取广告费。
 - en: WiccanGathering.com is an affiliate marketer for AllWicca.com, a program designed
     to provide a means for sites to earn commissions by linking to products on AllWicca.com.
+  id: totrans-16
   prefs: []
   type: TYPE_NORMAL
+  zh: WiccanGathering.com是AllWicca.com的联盟营销者，旨在通过向AllWicca.com的产品链接赚取佣金。
 - en: '**TESTIMONIALS DISCLAIMER** The Site may contain testimonials by users of our
     products and/or services. These testimonials reflect the real-life experiences
     and opinions of such users. However, the experiences are personal to those particular
     users, and may not necessarily be representative of all users of our products
     and/or services. We do not claim, and you should not assume, that all users will
     have the same experiences. YOUR INDIVIDUAL RESULTS MAY VARY.'
+  id: totrans-17
   prefs: []
   type: TYPE_NORMAL
+  zh: '**推荐语免责声明** 网站可能包含我们产品和/或服务的用户推荐语。这些推荐语反映了这些用户的真实生活经历和观点。然而，这些经历是特定用户的个人经历，可能不代表我们所有产品和/或服务的用户的体验。我们不声称，并且您不应假设所有用户都会有相同的经历。您的个人结果可能会有所不同。'
 - en: The testimonials on the Site are submitted in various forms such as text, audio
     and/or video, and are reviewed by us before being posted. They appear on the Site
     verbatim as given by the users, except for the correction of grammar or typing
     errors. Some testimonials may have been shortened for the sake of brevity where
     the full testimonial contained extraneous information not relevant to the general
     public.
+  id: totrans-18
   prefs: []
   type: TYPE_NORMAL
+  zh: 网站上的推荐语以文本、音频和/或视频等多种形式提交，我们在发布前会进行审核。这些推荐语在网站上显示时完全按照用户提供的原文，除了语法或打字错误的修正。为了简洁起见，某些推荐语可能已经缩短，原推荐语中包含的与公众无关的信息被剔除。
 - en: The views and opinions contained in the testimonials belong solely to the individual
     user and do not reflect our views and opinions. We are not affiliated with users
     who provide testimonials, and users are not paid or otherwise compensated for
     their testimonials.
+  id: totrans-19
   prefs: []
   type: TYPE_NORMAL
+  zh: 推荐语中包含的观点和意见完全属于个别用户，不代表我们的观点和意见。我们与提供推荐语的用户没有任何关联，这些用户也没有因其推荐而获得报酬或其他补偿。
