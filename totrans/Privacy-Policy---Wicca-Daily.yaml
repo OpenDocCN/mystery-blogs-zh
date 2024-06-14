@@ -1,32 +1,49 @@
 - en: <!--yml
+  id: totrans-0
   prefs: []
   type: TYPE_NORMAL
+  zh: <!--yml
 - en: 'category: 未分类'
+  id: totrans-1
   prefs: []
   type: TYPE_NORMAL
+  zh: 类别：未分类
 - en: 'date: 2024-06-12 18:24:25'
+  id: totrans-2
   prefs: []
   type: TYPE_NORMAL
+  zh: 日期：2024-06-12 18:24:25
 - en: -->
+  id: totrans-3
   prefs: []
   type: TYPE_NORMAL
+  zh: -->
 - en: Privacy Policy | Wicca Daily
+  id: totrans-4
   prefs:
   - PREF_H1
   type: TYPE_NORMAL
+  zh: 隐私政策 | Wicca Daily
 - en: 来源：[http://wiccadaily.com/privacy-policy/#0001-01-01](http://wiccadaily.com/privacy-policy/#0001-01-01)
+  id: totrans-5
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: 来源：[http://wiccadaily.com/privacy-policy/#0001-01-01](http://wiccadaily.com/privacy-policy/#0001-01-01)
 - en: This Privacy Policy governs the manner in which WiccaDaily collects, uses, maintains
     and discloses information collected from users (each, a “User”) of the [http://wiccadaily.com](http://wiccadaily.com)
     website (“Site”).
+  id: totrans-6
   prefs: []
   type: TYPE_NORMAL
+  zh: 本隐私政策规定了 WiccaDaily 如何收集、使用、维护和披露从用户（每位“用户”）收集的信息，该网站名称为 [http://wiccadaily.com](http://wiccadaily.com)
+    (“网站”)。
 - en: Personal identification information
+  id: totrans-7
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 个人身份识别信息
 - en: We may collect personal identification information from Users in a variety of
     ways, including, but not limited to, when Users visit our site, register on the
     site, place an order, fill out a form, respond to a survey, and in connection
@@ -36,105 +53,150 @@
     such information to us. Users can always refuse to supply personally identification
     information, except that it may prevent them from engaging in certain Site related
     activities.
+  id: totrans-8
   prefs: []
   type: TYPE_NORMAL
+  zh: 我们可能通过多种方式从用户处收集个人身份识别信息，包括但不限于用户访问我们的网站、注册网站、下订单、填写表格、回答调查以及与我们网站提供的其他活动、服务、特性或资源相关的其他活动。根据具体情况，用户可能会被要求提供姓名、电子邮件地址等个人身份识别信息。我们只会在用户自愿提交此类信息时收集个人身份识别信息。用户可以随时拒绝提供个人身份识别信息，但这可能会阻止他们参与某些网站相关活动。
 - en: Non-personal identification information
+  id: totrans-9
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 非个人身份识别信息
 - en: We may collect non-personal identification information about Users whenever
     they interact with our Site. Non-personal identification information may include
     the browser name, the type of computer and technical information about Users means
     of connection to our Site, such as the operating system and the Internet service
     providers utilized and other similar information.
+  id: totrans-10
   prefs: []
   type: TYPE_NORMAL
+  zh: 每当用户与我们的网站互动时，我们可能会收集关于用户的非个人身份识别信息。非个人身份识别信息可能包括浏览器名称、计算机类型以及有关用户连接方式的技术信息，例如操作系统和使用的互联网服务提供商等类似信息。
 - en: Web browser cookies
+  id: totrans-11
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 网页浏览器 cookie
 - en: Our Site may use “cookies” to enhance User experience. User’s web browser places
     cookies on their hard drive for record-keeping purposes and sometimes to track
     information about them. User may choose to set their web browser to refuse cookies,
     or to alert you when cookies are being sent. If they do so, note that some parts
     of the Site may not function properly.
+  id: totrans-12
   prefs: []
   type: TYPE_NORMAL
+  zh: 我们的网站可能使用“cookies”来增强用户体验。用户的网络浏览器会在其硬盘驱动器上放置 cookie，用于记录信息和有时追踪有关用户的信息。用户可以选择设置其网络浏览器拒绝
+    cookie，或在发送 cookie 时提醒他们。如果他们这样做，注意网站的某些部分可能无法正常运行。
 - en: How we use collected information
+  id: totrans-13
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 我们如何使用收集的信息
 - en: 'WiccaDaily may collect and use Users personal information for the following
     purposes:'
+  id: totrans-14
   prefs: []
   type: TYPE_NORMAL
+  zh: WiccaDaily 可能会出于以下目的收集和使用用户的个人信息：
 - en: '*To run and operate our Site*'
+  id: totrans-15
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了运行和操作我们的网站*'
 - en: We may need your information display content on the Site correctly.
+  id: totrans-16
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 我们可能需要您的信息来正确显示网站内容。
 - en: '*To improve customer service*'
+  id: totrans-17
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了改善客户服务*'
 - en: Information you provide helps us respond to your customer service requests and
     support needs more efficiently.
+  id: totrans-18
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 您提供的信息帮助我们更有效地回应您的客户服务请求和支持需求。
 - en: '*To personalize user experience*'
+  id: totrans-19
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了个性化用户体验*'
 - en: We may use information in the aggregate to understand how our Users as a group
     use the services and resources provided on our Site.
+  id: totrans-20
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 我们可能会将信息汇总，以了解我们的用户群体如何使用我们网站提供的服务和资源。
 - en: '*To improve our Site*'
+  id: totrans-21
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了改善我们的网站*'
 - en: We may use feedback you provide to improve our products and services.
+  id: totrans-22
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 我们可能会使用您提供的反馈来改进我们的产品和服务。
 - en: '*To run a promotion, contest, survey or other Site feature*'
+  id: totrans-23
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了推广、竞赛、调查或其他网站功能*'
 - en: To send Users information they agreed to receive about topics we think will
     be of interest to them.
+  id: totrans-24
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 发送用户同意接收的关于我们认为对他们感兴趣的主题的信息。
 - en: '*To send periodic emails*'
+  id: totrans-25
   prefs:
   - PREF_UL
   type: TYPE_NORMAL
+  zh: '*为了定期发送电子邮件*'
 - en: We may use the email address to send User information and updates pertaining
     to their order. It may also be used to respond to their inquiries, questions,
     and/or other requests.
+  id: totrans-26
   prefs:
   - PREF_IND
   type: TYPE_NORMAL
+  zh: 我们可能使用电子邮件地址发送与用户订单相关的信息和更新。它也可能用于回复他们的查询、问题和/或其他请求。
 - en: How we protect your information
+  id: totrans-27
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 我们如何保护您的信息
 - en: We adopt appropriate data collection, storage and processing practices and security
     measures to protect against unauthorized access, alteration, disclosure or destruction
     of your personal information, username, password, transaction information and
     data stored on our Site.
+  id: totrans-28
   prefs: []
   type: TYPE_NORMAL
+  zh: 我们采取适当的数据收集、存储和处理做法以及安全措施，以保护您在我们网站上存储的个人信息、用户名、密码、交易信息和数据，以防止未经授权的访问、更改、披露或破坏。
 - en: Sharing your personal information
+  id: totrans-29
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 分享您的个人信息
 - en: We do not sell, trade, or rent Users personal identification information to
     others. We may share generic aggregated demographic information not linked to
     any personal identification information regarding visitors and users with our
@@ -143,12 +205,16 @@
     and the Site or administer activities on our behalf, such as sending out newsletters
     or surveys. We may share your information with these third parties for those limited
     purposes provided that you have given us your permission.
+  id: totrans-30
   prefs: []
   type: TYPE_NORMAL
+  zh: 我们不会出售、交易或租赁用户的个人身份信息给他人。我们可能会与我们的业务合作伙伴、信任的关联公司和广告商分享不与任何个人身份信息相关联的通用聚合人口统计信息，以达到上述目的。我们可能会使用第三方服务提供商来帮助我们经营业务和网站，或者代表我们管理活动，例如发送新闻简报或调查。我们可能在这些有限的目的下与这些第三方分享您的信息，前提是您已经同意。
 - en: Electronic newsletters
+  id: totrans-31
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 电子新闻简报
 - en: If User decides to opt-in to our mailing list, they will receive emails that
     may include company news, updates, related product or service information, etc.
     If at any time the User would like to unsubscribe from receiving future emails,
@@ -158,12 +224,16 @@
     as sending out newsletters or surveys. We may share your information with these
     third parties for those limited purposes provided that you have given us your
     permission.
+  id: totrans-32
   prefs: []
   type: TYPE_NORMAL
+  zh: 如果用户决定选择加入我们的邮件列表，他们将会收到包括公司新闻、更新、相关产品或服务信息等内容的电子邮件。如果用户想要随时取消订阅未来的邮件，我们在每封邮件的底部都包含了详细的退订说明，或者用户可以通过我们的网站联系我们。我们可能会使用第三方服务提供商来帮助我们经营业务和网站，或者代表我们管理活动，例如发送新闻简报或调查。我们可能会在这些有限的目的下与这些第三方分享您的信息，前提是您已经同意。
 - en: Third party websites
+  id: totrans-33
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 第三方网站
 - en: Users may find advertising or other content on our Site that link to the sites
     and services of our partners, suppliers, advertisers, sponsors, licencors and
     other third parties. We do not control the content or links that appear on these
@@ -173,12 +243,16 @@
     own privacy policies and customer service policies. Browsing and interaction on
     any other website, including websites which have a link to our Site, is subject
     to that website’s own terms and policies.
+  id: totrans-34
   prefs: []
   type: TYPE_NORMAL
+  zh: 用户可能在我们的网站上发现链接到我们合作伙伴、供应商、广告商、赞助商、许可证持有人和其他第三方网站和服务的广告或其他内容。我们不控制这些网站上出现的内容或链接，也不对从我们网站链接到或从我们网站链接的网站使用的做法负责。此外，这些网站或服务，包括它们的内容和链接，可能会不断变化。这些网站和服务可能有自己的隐私政策和客户服务政策。浏览和互动任何其他网站（包括链接到我们网站的网站）都受到该网站自己的条款和政策的约束。
 - en: Advertising
+  id: totrans-35
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 广告
 - en: Ads appearing on our site may be delivered to Users by advertising partners,
     who may set cookies. These cookies allow the ad server to recognize your computer
     each time they send you an online advertisement to compile non personal identification
@@ -186,50 +260,71 @@
     ad networks to, among other things, deliver targeted advertisements that they
     believe will be of most interest to you. This privacy policy does not cover the
     use of cookies by any advertisers.
+  id: totrans-36
   prefs: []
   type: TYPE_NORMAL
+  zh: 出现在我们网站上的广告可能是由广告合作伙伴向用户提供的，他们可能会设置cookie。这些cookie允许广告服务器识别每次向您发送在线广告时您的计算机，以收集关于您或其他使用您计算机的人的非个人身份信息。这些信息允许广告网络在其他方面传送他们认为将对您最感兴趣的针对性广告。本隐私政策不包括任何广告商使用cookie的情况。
 - en: Google Adsense
+  id: totrans-37
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 谷歌广告联盟
 - en: Some of the ads may be served by Google. Google’s use of the DART cookie enables
     it to serve ads to Users based on their visit to our Site and other sites on the
     Internet. DART uses “non personally identifiable information” and does NOT track
     personal information about you, such as your name, email address, physical address,
     etc. You may opt out of the use of the DART cookie by visiting the Google ad and
     content network privacy policy at [http://www.google.com/privacy_ads.html](https://www.google.com/privacy_ads.html)
+  id: totrans-38
   prefs: []
   type: TYPE_NORMAL
+  zh: 一些广告可能由Google提供。Google使用DART cookie，基于用户访问我们网站及互联网上其他网站的情况来投放广告。DART使用“非个人身份信息”，不会追踪您的个人信息，如姓名、电子邮件地址、物理地址等。您可以访问Google广告和内容网络隐私政策页面[http://www.google.com/privacy_ads.html](https://www.google.com/privacy_ads.html)选择退出使用DART
+    cookie。
 - en: Changes to this privacy policy
+  id: totrans-39
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 隐私政策的更改
 - en: WiccaDaily has the discretion to update this privacy policy at any time. When
     we do, we will post a notification on the main page of our Site. We encourage
     Users to frequently check this page for any changes to stay informed about how
     we are helping to protect the personal information we collect. You acknowledge
     and agree that it is your responsibility to review this privacy policy periodically
     and become aware of modifications.
+  id: totrans-40
   prefs: []
   type: TYPE_NORMAL
+  zh: WiccaDaily有权随时更新本隐私政策。更新时，我们将在网站主页发布通知。我们建议用户经常查看此页面以了解我们如何保护我们收集的个人信息的任何变化。您承认并同意，定期审查本隐私政策并了解修改内容是您的责任。
 - en: Your acceptance of these terms
+  id: totrans-41
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 您接受这些条款
 - en: By using this Site, you signify your acceptance of this policy. If you do not
     agree to this policy, please do not use our Site. Your continued use of the Site
     following the posting of changes to this policy will be deemed your acceptance
     of those changes.
+  id: totrans-42
   prefs: []
   type: TYPE_NORMAL
+  zh: 使用本网站即表示您接受本政策。如果您不同意本政策，请不要使用我们的网站。在本政策更新后继续使用本网站将被视为您对这些更改的接受。
 - en: Contacting us
+  id: totrans-43
   prefs:
   - PREF_H3
   type: TYPE_NORMAL
+  zh: 联系我们
 - en: If you have any questions about this Privacy Policy, the practices of this site,
     or your dealings with this site, please contact us.
+  id: totrans-44
   prefs: []
   type: TYPE_NORMAL
+  zh: 如果您对本隐私政策、本网站的实践或与本网站的交易有任何问题，请联系我们。
 - en: This document was last updated on April 21, 2015
+  id: totrans-45
   prefs: []
   type: TYPE_NORMAL
+  zh: 本文档最后更新日期为2015年4月21日
