@@ -1,189 +1,274 @@
 - en: <!--yml
+  id: totrans-0
   prefs: []
   type: TYPE_NORMAL
+  zh: <!--yml
 - en: 'category: 未分类'
+  id: totrans-1
   prefs: []
   type: TYPE_NORMAL
+  zh: 'category: 未分类'
 - en: 'date: 2024-06-12 18:11:03'
+  id: totrans-2
   prefs: []
   type: TYPE_NORMAL
+  zh: 'date: 2024-06-12 18:11:03'
 - en: -->
+  id: totrans-3
   prefs: []
   type: TYPE_NORMAL
+  zh: -->
 - en: 'The Anatomy Of A Spell: What Is A Spell And How Can You Write Your Own? - Eclectic
     Witchcraft'
+  id: totrans-4
   prefs:
   - PREF_H1
   type: TYPE_NORMAL
+  zh: 'The Anatomy Of A Spell: What Is A Spell And How Can You Write Your Own? - Eclectic
+    Witchcraft'
 - en: 来源：[https://eclecticwitchcraft.com/the-anatomy-of-a-great-spell/#0001-01-01](https://eclecticwitchcraft.com/the-anatomy-of-a-great-spell/#0001-01-01)
+  id: totrans-5
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: 来源：[https://eclecticwitchcraft.com/the-anatomy-of-a-great-spell/#0001-01-01](https://eclecticwitchcraft.com/the-anatomy-of-a-great-spell/#0001-01-01)
 - en: '**Abundance**: Allspice, Bergamot, Birch, Chamomile, Grapefruit, Juniper, Lemon,
     Lime, Litsea, Mandarin, nutmeg, opopanax, orange, Pepper, Pine, Star Anise, Yarrow.'
+  id: totrans-6
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Abundance**: 甘草，佛手柑，桦木，洋甘菊，葡萄柚，冷杉，柠檬，酸橙，梨特西亚，柑橘，肉豆蔻，没药，橙子，胡椒，松树，八角茴香，艾蒿。'
 - en: '**Aphrodisiac**: Cardamom, Ginger, Jasmine, Neroli, Patchouli, Rose, Sandalwood,
     Vanilla, Ylang Ylang.'
+  id: totrans-7
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Aphrodisiac**: 豆蔻，姜，茉莉，橙花，豆蔻，玫瑰，檀香，香草，依兰依兰。'
 - en: '**Astral Realm**: Cinnamon, Frankincense, Geranium, Ginger, Mugwort, Sandalwood.'
+  id: totrans-8
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Astral Realm**: 肉桂，乳香，天竺葵，姜，艾蒿，檀香。'
 - en: '**Attraction**: Allspice, Angelica, Basil, Catnip, Chamomile, Cinnamon, Citronella,
     Clary Sage, Clove, Frankincense, Geranium, Helichrysum, Hops, Hyssop, Jasmine,
     Lavender, Marjoram, Mugwort, Neroli, Oregano, Patchouli, Rose, Rosemary, Spearmint,
     Spikenard, Yarrow, Ylang Ylang.'
+  id: totrans-9
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Attraction**: 甘草，安吉利卡，罗勒，猫薄荷，洋甘菊，肉桂，驱蚊草，清香豆，丁香，乳香，莪术，百里香，薰衣草，墨角兰，鼠尾草，芫荽，柏树，迷迭香，豆蔻，玫瑰，艾蒿，依兰依兰。'
 - en: '**Banishing**: Angelica, Anise, Basil, Bay, Camphor, Cedarwood, Clove, Cypress,
     Eucalyptus, Frankincense, Juniper, Mugwort, Myrrh, Opopanax, Palo Santo, Patchouli,
     Pepper, Pine, Rose, Sandalwood, Star Anise, Yarrow.'
+  id: totrans-10
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Banishing**: 安吉利卡，茴香，柏树，桦木，樟脑，雪松，丁香，柏树，尤加利，乳香，杜松，艾蒿，没药，八角茴香，白檀，哪咤香。'
 - en: '**Beginnings**: Angelica, Anise, Birch, Cardamom, Carrot, Clove, Coriander,
     Fennel, Fir, Geranium, Juniper, Mugwort, Nutmeg, Pine, Rose, Yarrow.'
+  id: totrans-11
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Beginnings**: 安吉利卡，茴香，桦木，豆蔻，胡萝卜，丁香，香菜，茴香，冷杉，天竺葵，艾蒿，肉豆蔻，松树，玫瑰，蓍草。'
 - en: '**Binding**: Angelica, Clove, Cypress, Frankincense(breaks binds), Jasmine,
     Pepper, Pine, Rose, Rosemary.'
+  id: totrans-12
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Binding**: 安吉利卡，丁香，柏树，乳香（解除绑定），茉莉，胡椒，松树，玫瑰，迷迭香。'
 - en: '**Blessing / Consecrate**: Allspice, Angelica, Anise, Basil, Bay, Benzoin,
     Birch, Cedarwood, Chamomile, Cistus, Coriander, Cypress, Fennel, Frankincense,
     Geranium, Helichrysum, Jasmine, Lavender, Lime, Mugwort, Myrrh, Myrtle, Oponanax,
     Palmarosa, Patchouli, Pepper, Pine, Rose, Rosemary, Sandalwood, Spikenard, Star
     Anise, Thyme, Valerian, Yarrow.'
+  id: totrans-13
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Blessing / Consecrate**: 甘草，安吉利卡，茴香，罗勒，月桂，安息香，桦木，雪松，洋甘菊，岩玫瑰，香菜，柏树，茴香，乳香，天竺葵，万寿菊，薰衣草，酸橙，艾蒿，没药，桉香，玫瑰，迷迭香，檀香，哪咤香，八角茴香，百里香，缬草。'
 - en: '**Clairvoyance**: Anise, Basil, Bay, Cedarwoo, Cinnamon, Clary Sage, Clove,
     Coriander, Frankincense, Lavender, Lemongrass, Mugwort, Nutmeg, Oakmoss, Patchouli,
     Rose, Sage, Sandalwood, Star Anise, Thyme, Yarrow.'
+  id: totrans-14
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Clairvoyance**: 茴香，罗勒，月桂，雪松，肉桂，鼠尾草，鼠尾草，香菜，乳香，薰衣草，柠檬草，肉豆蔻，橡苔，广藿香，玫瑰，鼠尾草，檀香，八角茴香，百里香。'
 - en: '**Clarity**: Basil, Birch, Camphor, Cardamom, Cedarwood, Chamomile, Clary Sage,
     Cypress, Frankincense, Helichrysum, Jasmine, Lavender, Lemon, Lemongrass, Nutmeg,
     Orange, Oregano, Palmarosa, Peppermint, Rosemary, Sandalwood, Spearmint, Spruce.'
+  id: totrans-15
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Clarity**: 罗勒，桦木，樟脑，豆蔻，雪松，洋甘菊，鼠尾草，柏树，乳香，万寿菊，茉莉，薰衣草，柠檬，香茅，肉豆蔻，橙子，牛至，薄荷，迷迭香，檀香，猛薄荷，云杉。'
 - en: '**Communication**: Allspice, Cedarwood, Chamomile, Citronella, Fennel, Fir,
     Geranium, Jasmine, Lavender, Myrtle, Rosemary, Spikenard, Valerian.'
+  id: totrans-16
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Communication**: 甘草，雪松，洋甘菊，驱蚊草，茴香，冷杉，天竺葵，茉莉，薰衣草，桉树，白兰。'
 - en: '**Confidence**: Basil, Bergamot, Cardamom, Cedarwood, Geranium, Grapefruit,
     Jasmine, Lemon, Lime, Mandarin, Neroli, Orange, ine, Rose, Rosemary, Tea Tree,
     Thyme, Turmeric, Yarrow.'
+  id: totrans-17
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Confidence**: 罗勒，佛手柑，豆蔻，雪松，天竺葵，葡萄柚，茉莉，柠檬，酸橙，柑橘，橙子，香橼，甜橙，玫瑰，迷迭香，茶树，百里香，姜黄，蓍草。'
 - en: '**Courage**: [Black Pepper](http://redirect.viglink.com?key=54ac85620353881c9330705eb2832809&type=bk&u=https%3A%2F%2Fwww.walmart.com%2Fip%2FMcCormick-Black-Peppercorn-Grinder-2-5-oz%2F44883256),
     Clove, Fennel, Ginger, Thyme, Yarrow.'
+  id: totrans-18
   prefs: []
   type: TYPE_NORMAL
+  zh: '**Courage**: [黑胡椒](http://redirect.viglink.com?key=54ac85620353881c9330705eb2832809&type=bk&u=https%3A%2F%2Fwww.walmart.com%2Fip%2FMcCormick-Black-Peppercorn-Grinder-2-5-oz%2F44883256)，丁香，茴香，姜，百里香，蓍草。'
 - en: '**Creativity**: Bay, Birch, Cajeput, Cardamom, Chamomile, Cinnamon, Citronella,
     Clary Sage, Clove, Fennel, Fir, Geranium, Helichrysum, Jasmine, Lavender, Myrtle,
     Neroli, Nutmeg, Orange, Patchouli, Peppermint, Pine, Rosemary, Sandalwood, Spikenard,
     Tea Tree, Valerian, Ylang Ylang.'
+  id: totrans-19
   prefs: []
   type: TYPE_NORMAL
+  zh: '**创造力**：月桂，桦木，樟脑，豆蔻，洋甘菊，肉桂，香茅，豆蔻，鼠尾草，茴香，冷杉，岩香草，茉莉，薰衣草，桃金娘，桂皮，薄荷，松树，迷迭香，檀香木，黑麝香，茶树，依兰，依兰。'
 - en: '**Depression**: Basil, Clary Sage, Jasmine, Lemon, Ylang Ylang'
+  id: totrans-20
   prefs: []
   type: TYPE_NORMAL
+  zh: '**抑郁**：罗勒，鼠尾草，茉莉，柠檬，依兰'
 - en: '**Fertility**: Anise, Basil, Birch, Carrot, Catnip, Cedarwood, Chamomile, Clary
     Sage, Clove, Coriander, Fennel, Geranium, Helichrysum, Jasmine, Juniper, Lavender,
     Lemon Balm, Marjoram, Mugwort, Neroli, Orange, Oregano, Patchouli, Peppermint,
     Pine, Rose, Rosemary, Sage, Spearmint, Yarrow, Ylang Ylang.'
+  id: totrans-21
   prefs: []
   type: TYPE_NORMAL
+  zh: '**生育力**：茴香，罗勒，桦木，胡萝卜，猫薄荷，雪松，洋甘菊，鼠尾草，丁香，香菜，香茅，天竺葵，橙花，牛至，橙子，牛至，薄荷，松树，玫瑰，迷迭香，鼠尾草，留兰香，依兰。'
 - en: '**Grounding**: Angelica, Chamomile, Cistus, Citronella, Cypress, Fir, Ginger,
     Helichrysum, Juniper, Lavender, Lemongrass, Litsea, Myrrh, Oakmoss, Opopanax,
     Palmarosa, Patchouli, Pine, Sage, Sandalwood, Spikenard, Spruce, Turmeric, Valerian,
     Vetiver, Yarrow.'
+  id: totrans-22
   prefs: []
   type: TYPE_NORMAL
+  zh: '**扎根**：当归，洋甘菊，岩兰草，香茅，柏树，冷杉，姜，永生，杜松，薰衣草，香茅，木姜子，没药，乳香，橙花，檀香，松树，鼠尾草，檀香木，雪松，岩香草，姜黄，欧芹，百里香。'
 - en: '**Happiness** / Joy: Basil, Bergamot, Orange, Neroli'
+  id: totrans-23
   prefs: []
   type: TYPE_NORMAL
+  zh: '**幸福** / 快乐：罗勒，佛手柑，橙子，橙花'
 - en: '**Healing**: Allspice, Angelica, Basil, Bay, Birch, Cajeput, Camphor, Cardamom,
     Carrot, Catnip, Cedarwoo, Chamomile, Cinnamon, Clove, Coriander, Cypress, Eucalyptus,
     Fennel, Fir, Frankincense, Lavender, Lime, Marjoram, Mugwort, Myrrh, Opopanax,
     Oregano, Palmarosa, Pepper, Peppermint, Pine, Rose, Sage, Sandalwood, Spearmint,
     Turmeric, Valerian, Yarrow, Ylang Ylang.'
+  id: totrans-24
   prefs: []
   type: TYPE_NORMAL
+  zh: '**愈合**：多香果，当归，罗勒，月桂，桦木，百草油树，樟脑，豆蔻，胡萝卜，猫薄荷，雪松，洋甘菊，肉桂，丁香，香菜，柏树，桉树，茴香，冷杉，乳香，薰衣草，酸橙，马郁兰，艾蒿，没药，乳香，牛至，侧柏，欧芹，百里香，依兰。'
 - en: '**Longevity**: Fennel, Rosemary'
+  id: totrans-25
   prefs: []
   type: TYPE_NORMAL
+  zh: '**长寿**：茴香，迷迭香'
 - en: '**Love**: Allspice, Anise, Basil, Bergamot, Birch, Cardamom, Cedarwood, Chamomile,
     Cinnamon, Clove, Coriander, Frankincense, Ginger, Honey, Jasmine, Lavender, Lemon
     Verbena, Neroli, Palmarosa, Patchouli, Peppermint, Rose, Rosemary, Tuberose, Vanilla,
     Vetiver, Yarrow, Ylang Ylang.'
+  id: totrans-26
   prefs: []
   type: TYPE_NORMAL
+  zh: '**爱**：多香果，茴香，罗勒，佛手柑，桦木，豆蔻，雪松，洋甘菊，丁香，香菜，雪松，橙花，乳香，蜜香，茉莉，薰衣草，柠檬马鞭草，橙子，薄荷，松树，玫瑰，迷迭香，檀香木，香草，百里香，岩香草，依兰，依兰。'
 - en: '**Luck**: Allspice, Anise, Basil, Bergamot, Catnip, Cedarwood, Chamomile, Cinnamon,
     Clove, Geranium, Jasmine, Lavender, Oakmoss, Patchouli, Peppermint, Rose, Rosemary,
     Sandalwood, Spearmint, Spikenard, Star Anise, Thyme, Vetiver, Yarrow.'
+  id: totrans-27
   prefs: []
   type: TYPE_NORMAL
+  zh: '**幸运**：多香果，茴香，罗勒，佛手柑，猫薄荷，雪松，洋甘菊，肉桂，丁香，茴香，香菜，乳香，姜，蜂蜜，茉莉，薰衣草，香马鞭草，乳香，薄荷，松树，玫瑰，迷迭香，檀香木，茴香，八角茴香，百里香，岩香草。'
 - en: '**Magical** **Energy**: Bay, Ginger, Nutmeg, Orange, Pine, Vanilla'
+  id: totrans-28
   prefs: []
   type: TYPE_NORMAL
+  zh: '**魔法能量**：月桂，姜，肉豆蔻，橙子，松树，香草'
 - en: '**Meditation**: Chamomile, Frankincense, Myrrh, Sandalwood'
+  id: totrans-29
   prefs: []
   type: TYPE_NORMAL
+  zh: '**冥想**：洋甘菊，乳香，没药，檀香'
 - en: '**Memory**: Clove, Coriander, Peppermint, Rosemary, Spearmint, Sage'
+  id: totrans-30
   prefs: []
   type: TYPE_NORMAL
+  zh: '**记忆**：丁香，香菜，薄荷，迷迭香，留兰香，鼠尾草'
 - en: '**Money**: Basil, Ginger, Lemon Balm, Nutmeg, Patchouli, Sage, Tonka, Vetiver'
+  id: totrans-31
   prefs: []
   type: TYPE_NORMAL
+  zh: '**金钱**：罗勒，姜，柠檬香茶，肉豆蔻，乳香，鼠尾草，香豆，岩兰草'
 - en: '**Negativity**: Angelica, Anise, Basil, Bay, Birch, Camphor, Carrot, Cedarwoo,
     Cinnamon, Citronella, Clove, Eucalyptus, Frankincense, Juniper, Lavender, Lime,
     Mandarin, Marjoram, Myrrh, Opopanax, Palo Santo, Patchouli, Peppermint, Pine,
     Rosemary, Sage, Sandalwood, Spikenard, Star Anise, Thyme, Yarrow.'
+  id: totrans-32
   prefs: []
   type: TYPE_NORMAL
+  zh: '**消极**：当归，茴香，罗勒，月桂，樟脑，胡萝卜，雪松，肉桂，柠檬草'
 - en: '**Passion**: Cardamom, Cinnamon, Coriander, Ginger, Lemongrass, Myrtle, Patchouli,
     Rose, Turmeric.'
+  id: totrans-33
   prefs: []
   type: TYPE_NORMAL
+  zh: '**激情**：豆蔻，肉桂，香菜，姜，香茅，桃金娘，檀香木，迷迭香。'
 - en: '**Peace**: Bergamot, Chamomile, Ginger, Jasmine, Lavender, Lemon Balm, Marjoram,
     Rose, Tuberose, Ylang Ylang'
+  id: totrans-34
   prefs: []
   type: TYPE_NORMAL
+  zh: '**和平**：佛手柑，洋甘菊，姜，茉莉，薰衣草，香蜂草，马郁兰，玫瑰，晚香玉，依兰'
 - en: '**Physical** **Energy**: Bergamot, Black Pepper, Camphor, Cinnamon, Ginger,
     Lemon, Lime, Nutmeg, Orange'
+  id: totrans-35
   prefs: []
   type: TYPE_NORMAL
+  zh: '**体力** **能量**：佛手柑，黑胡椒，樟脑，肉桂，姜，柠檬，酸橙，肉豆蔻，橙子'
 - en: '**Prosperity**: Allspice, Basil, Bay, Bergamot, Cedarwood, Chamomile, Cinnamon,
     Citronella, Clary Sage, Clove, Fir, Ginger, Jasmine, Juniper, Lavender, Mandarin,
     Marjoram, Myrrh, Myrtle, Nutmeg, Opopanax, Oregano, Patchouli, Peppermint, Pine,
     Sage, Spearmint, Vetiver.'
+  id: totrans-36
   prefs: []
   type: TYPE_NORMAL
+  zh: '**繁荣**：甘草，安琪莉卡，月桂，佛手柑，雪松木，洋甘菊，肉桂，驱蚊草，鼠尾草，丁香，冷杉，姜，茉莉花，杜松，薰衣草，柑橘，马郁兰，没药，欧芹，广藿香，牛至'
 - en: '**Protection** **(Spiritual & Psychic)**: Angelica, Basil, Bay, Black Pepper,
     Clove, Cinnamon, Cypress, Eucalyptus, Fennel, Fir, Geranium, Juniper, Lavender,
     Lime, Mugwort, Nutmeg, Opopanax, Peppermint, Pennyroyal, Pine, Rose, Rosemary,
     Rue, Sandalwood, Spruce, Tea Tree, Thyme, Turmeric, Valerian, Vetiver, Western
     Red Cedar, Yarrow'
+  id: totrans-37
   prefs: []
   type: TYPE_NORMAL
+  zh: '**保护** **（精神和心灵）**：安琪莉卡，罗勒，月桂，黑胡椒，丁香，肉桂，柏树，桉树，茴香，冷杉，天竺葵，杜松，薰衣草，酸橙，艾蒿，肉豆蔻，乳香桂油，薄荷，薄荷薄荷，松节，玫瑰，迷迭香，鼠尾草，茴香，姜黄，没药，岩慈姑，麝香根，西红杉，蓍草'
 - en: '**Psychic Awareness**: Bay, Cinnamon, Lemongrass, Mugwort, Nutmeg, Star Anise,
     Yarrow'
+  id: totrans-38
   prefs: []
   type: TYPE_NORMAL
+  zh: '**心灵感知**：月桂，肉桂，柠檬草，艾蒿，肉豆蔻，八角，蓍草'
 - en: 'Purification: Angelica, Bay, Camphor, Copal, Eucalyptus, Ginger, Hyssop, Juniper,
     Lemon, Lemon Balm, Lemongrass, Lemon Verbena, Lime, Neroli, Orange, Palo Santo,
     Pine, Western Red Cedar'
+  id: totrans-39
   prefs: []
   type: TYPE_NORMAL
+  zh: 净化：安琪莉卡，月桂，樟脑，香脂，桉树，生姜，牛膝草，杜松，柠檬，香蜂草，柠檬草，柠檬马鞭草，酸橙，橙花，巴洛桑托，松树，西红杉
 - en: '**Success**: Allspice, Angelica, Basil, Bay, Bergamot, Cedarwood, Chamomile,
     Cinnamon, Clove, Frankincense, Geranium, Ginger, Grapefruit, Juniper, Lemon, Lime,
     Litsea, Mandarin, Myrrh, Opopanax, Orange, Patchouli, Pepper, Sandalwood, Star
     Anise, Yarrow.'
+  id: totrans-40
   prefs: []
   type: TYPE_NORMAL
+  zh: '**成功**：甘草，安琪莉卡，罗勒，月桂，佛手柑，雪松木，洋甘菊，肉桂，丁香，乳香，天竺葵，姜，柚子，杜松，柠檬，酸橙，黄檗，曼陀罗，没药，乳香桂油，橙子，广藿香，胡椒，檀香木，八角，蓍草'
 - en: '**Vitality**: Cedarwood, Cistus, Citronella, Fir, Frankincense, Ginger, Lemongrass,
     Lime, Myrrh, Opopanax, Rosemary, Valerian, Basil, Catnip, Clary Sage, Marjoram,
     Oregano, Patchouli, Peppermint, Sage, Spearmint.'
+  id: totrans-41
   prefs: []
   type: TYPE_NORMAL
+  zh: '**活力**：雪松木，岩腊椴，驱蚊草，冷杉，乳香，生姜，柠檬草，酸橙，没药，乳香桂油，迷迭香，缬草，罗勒，猫薄荷，鼠尾草，千层塔，牛至，薄荷，鼠尾草'
