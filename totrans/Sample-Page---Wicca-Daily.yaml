@@ -1,45 +1,67 @@
 - en: <!--yml
+  id: totrans-0
   prefs: []
   type: TYPE_NORMAL
+  zh: <!--yml
 - en: 'category: 未分类'
+  id: totrans-1
   prefs: []
   type: TYPE_NORMAL
+  zh: 分类：未分类
 - en: 'date: 2024-06-12 18:24:25'
+  id: totrans-2
   prefs: []
   type: TYPE_NORMAL
+  zh: 日期：2024年06月12日 18:24:25
 - en: -->
+  id: totrans-3
   prefs: []
   type: TYPE_NORMAL
+  zh: -->
 - en: Sample Page | Wicca Daily
+  id: totrans-4
   prefs:
   - PREF_H1
   type: TYPE_NORMAL
+  zh: 示例页面 | 巫术日报
 - en: 来源：[http://wiccadaily.com/sample-page/#0001-01-01](http://wiccadaily.com/sample-page/#0001-01-01)
+  id: totrans-5
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: 来源：[http://wiccadaily.com/sample-page/#0001-01-01](http://wiccadaily.com/sample-page/#0001-01-01)
 - en: 'This is an example page. It’s different from a blog post because it will stay
     in one place and will show up in your site navigation (in most themes). Most people
     start with an About page that introduces them to potential site visitors. It might
     say something like this:'
+  id: totrans-6
   prefs: []
   type: TYPE_NORMAL
+  zh: 这是一个示例页面。它与博客文章不同，因为它会在一个固定位置保留，并在您的站点导航中显示（在大多数主题中）。大多数人从一个关于页面开始，向潜在的站点访问者介绍他们。可能会说一些像这样的话：
 - en: Hi there! I’m a bike messenger by day, aspiring actor by night, and this is
     my blog. I live in Los Angeles, have a great dog named Jack, and I like piña coladas.
     (And gettin’ caught in the rain.)
+  id: totrans-7
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: 嗨！我白天是个自行车快递员，晚上是个有抱负的演员，这是我的博客。我住在洛杉矶，有一只名叫杰克的可爱狗，我喜欢椰子菠萝酒。 （还有在雨中被淋湿。）
 - en: '…or something like this:'
+  id: totrans-8
   prefs: []
   type: TYPE_NORMAL
+  zh: '...或者像这样：'
 - en: The XYZ Doohickey Company was founded in 1971, and has been providing quality
     doohickeys to the public ever since. Located in Gotham City, XYZ employs over
     2,000 people and does all kinds of awesome things for the Gotham community.
+  id: totrans-9
   prefs:
   - PREF_BQ
   type: TYPE_NORMAL
+  zh: XYZ Doohickey公司成立于1971年，自那时起一直向公众提供优质的小玩意。位于哥谭市，XYZ公司雇佣了超过2,000人，并为哥谭社区做出各种出色的事情。
 - en: As a new WordPress user, you should go to [your dashboard](<DOMAININSTALLDIR/wp-admin/)
     to delete this page and create new pages for your content. Have fun!
+  id: totrans-10
   prefs: []
   type: TYPE_NORMAL
+  zh: 作为一个新的WordPress用户，你应该前往[你的仪表板](<DOMAININSTALLDIR/wp-admin/)来删除这个页面，并为你的内容创建新页面。玩得开心！
