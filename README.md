@@ -32,11 +32,7 @@
 
 # 神秘学博客译文集
 
-> 原文：[{nameEn}]({urlEn})
-> 
 > 协议：[CC BY-NC-SA 4.0](http://creativecommons.org/licenses/by-nc-sa/4.0/)
-> 
-> 阶段：机翻（1）
 > 
 > 敢于公开博弈，敢于激化矛盾，敢于同归于尽！
 
